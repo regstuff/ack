@@ -1,185 +1,64 @@
-# Andhaka
+# Andhaka: The Dark Lord Who Saw Light
 
-One day, deep in the beautiful, tranquil forests of Mount Mandara, Lord Shiva and his wife, Goddess Parvati, were sitting peacefully together. 
+Hearing of the breathtaking beauty of Mount Mandara, Lord Shiva traveled there with his wife, Parvati, and his *ganas* (attendants). "Ah! It is as beautiful as its name," Shiva admired. 
 
-Parvati was in a playful mood. Creeping up silently behind her husband, she giggled and playfully covered all three of Shiva's eyes with her hands. 
+One day, while relaxing in the mountains, Parvati was in a playful mood. Creeping up behind Shiva, she brought her hands forward and covered all three of his eyes. Instantly, the entire world was plunged into darkness! 
 
-At once, the entire world was plunged into absolute, terrifying darkness! 
+Held over the fiery third eye of Shiva, Parvati's hands began to perspire profusely. The sweat flowed out and fell upon the ground, and suddenly, from that divine perspiration, a weird, hideous being rose. 
 
-Held over the blazing, fiery heat of Shiva's third eye, Parvati's hands immediately began to perspire heavily. A few drops of hot sweat flowed out and fell upon the dry ground. 
+When Parvati smiled and uncovered Shiva's eyes, the returning light made the creature look even more horrible. "My lord, what is this hideous thing before us?" Parvati gasped. 
+The omniscient Shiva smiled. "My dear, it is you who closed my eyes, so this is your work. It is our son, dear one... born of the sweat of your hand and the heat of my eye. Born in darkness, he shall be called Andhaka, the blind one. As he is your son, you must care for him."
+"I will do so, my lord," the compassionate Parvati agreed, and she lovingly began to look after the blind, misshapen child. 
 
-Suddenly, the sweat boiled, and there rose from it a weird, misshapen being! 
+Meanwhile, far away, the Asura king Hiranyaksha was performing severe austerities to please Shiva. Pleased with his devotion, Shiva appeared before him with Parvati and young Andhaka. 
+"O Asura, what is it that you desire?" Shiva asked. 
+"Great lord, I have no son to inherit my kingdom after me, while my brother Hiranyakashipu has five," Hiranyaksha wept. "I beg you—grant me a son."
+"Cast off your distress," Shiva blessed him. "I shall grant you one. Accept him as your own." With that, Shiva gave the blind boy Andhaka to the Asura king. 
 
-As Parvati removed her hands and the returning light restored the world, she stared at the creature in shock. It looked horrible, with a massive, misshapen head and completely blind eyes. 
+Overjoyed, Hiranyaksha took Andhaka to his kingdom, and the boy was raised as an Asura prince. However, having gained Shiva's favor, Hiranyaksha grew arrogant. He launched a massive campaign to conquer the three worlds, striking fear into the hearts of the Devas. In desperation, the Devas sought the aid of Lord Vishnu. Transforming himself into Varaha, the mighty boar, Vishnu routed the Asura armies and killed Hiranyaksha with his Sudarshan Chakra. 
 
-"My lord, what is this hideous thing before us?" Parvati gasped. 
+Lord Vishnu then blessed Andhaka, crowning the blind boy as the new king of the Asuras. But Andhaka's envious cousins could not bear to see him on the throne. They taunted him endlessly. "What kind of king will you be—blind as you are? Our uncle was a fool to have adopted a blind fellow. One of us shall be king!"
 
-The omniscient Shiva smiled gently. "It is our son, dear one... born of the sweat of your hand and the heat of my eye."
+Helpless against their cruel onslaught, Andhaka went into the depths of a dark forest. Standing on one leg with his arms raised, he performed a terrible, grueling penance until he was reduced to a mere skeleton. 
+At last, Lord Brahma appeared before him. "Cease your terrible austerities. Choose any boon you desire."
+"My lord, let me have undisputed control of the three worlds... and let no death come to me," Andhaka asked. 
 
-He reached out to the trembling creature. "Born in darkness, he shall be called Andhaka, the blind one. As he is your son, you must care for him."
+"You shall become lord of the three worlds," Brahma replied. "But whoever is born must die. You may, however, choose the manner of your death."
+"Then, let the most excellent of women in the world, whatever her age, be like a mother to me," Andhaka schemed cleverly. "And should I ever look upon her as anything but a mother, let destruction befall me instantly."
+Surprised but amused by the request, Brahma smiled. "Whatever you have desired shall be yours. Realize your ambition. But always fight with heroic persons."
 
-The compassionate Parvati immediately embraced the child and began to look after Andhaka with deep motherly love. 
+Andhaka then pleaded, "Sightless and skeletal as I am now, how can I fight my foes? Rest your healing hand upon me."
+Brahma touched him, and instantly, Andhaka became full-bodied, incredibly handsome, strong, and gained the precious gift of perfect vision! 
 
-Meanwhile, far away on a desolate mountain peak, the powerful Asura King Hiranyaksha was performing incredibly severe austerities, standing on one leg in the freezing wind in order to please Lord Shiva. 
+When the transformed Andhaka returned to his palace, his awe-struck cousins immediately surrendered the throne. But, just like his foster father, Andhaka began to crave absolute power. He marched his armies out of the netherworld, conquering the earth and then heaven, forcing Indra and the Devas to pay him tribute. 
 
-Pleased by his devotion, Shiva finally appeared before him. "O Asura, what is it that you desire?"
+As undisputed master of the universe, Andhaka abandoned himself to a life of indolence and pleasure. Surrounded by bad companions, he grew arrogant and evil, disrupting holy sacrifices and demanding all worship be directed to him. Blinded by pride, he completely forgot his own history and the destiny he had chosen for himself. 
 
-"Great Lord, I have no son to inherit my kingdom after me," Hiranyaksha prayed. "My brother, Hiranyakashipu, has five. I beg you—grant me a son."
+One day, while staying at the Mandara mountain, Andhaka's ministers stumbled upon a mountain cavern. Inside sat a hermit in deep meditation, accompanied by a woman of unmatched, breathtaking beauty. 
+When they reported this to Andhaka, his lust and pride flared. "If she is so lovely, she should be mine! Go and bring her to me at once!"
 
-"Kind-hearted Shiva, listen to my prayer," the Asura wept. 
+The ministers returned to the cave and rudely demanded the hermit hand over the woman. The hermit, who was Lord Shiva himself (and the woman, Parvati), remained calm. 
+When the ministers returned and told Andhaka that the "uncouth hermit" refused to yield his wife, the arrogant Asura king blazed with anger. "I will attack that crude hermit. Let him know who Andhaka is!"
 
-"Cast off your distress, Hiranyaksha. I shall grant you one," Shiva smiled. He presented the blind, misshapen boy to the Asura King. "My son, Andhaka, is equal in might to you. Accept him as your own."
+Andhaka marched on the cave but was fiercely beaten back by Viraka, Shiva's powerful guard. A few days later, knowing Shiva had left to perform austerities, Andhaka returned with a massive army. This time, Viraka was overwhelmed and collapsed under the assault. 
 
-In great joy, Hiranyaksha took Andhaka to his vast kingdom, and the blind boy began to live in his grand new home. 
+Just as Andhaka reached for Parvati, female divinities sent by Brahma, Vishnu, and Indra arrived to protect her. A fierce battle erupted. Then, blazing forth like a thousand suns, Lord Shiva himself returned! 
 
-But Hiranyaksha's power made him incredibly arrogant. He launched a brutal campaign to conquer the three worlds, striking fear into the hearts of the Devas. In absolute desperation, the Devas begged Lord Vishnu for aid. 
+"Let the evil Asura fight on if he has the might to do so!" Shiva challenged. 
+The next morning, the armies clashed. The Asura general, Vidhasa, suddenly grew to a monstrous size and swallowed hundreds of Devas whole! But Shiva laughed, his divine light forcing the monster's mouth open, releasing the trapped gods. 
 
-Lord Vishnu transformed himself into Varaha, the mighty, invincible boar, and utterly destroyed the armies of Hiranyaksha, killing the Asura King. However, taking pity on the innocent, blind adopted son, Lord Vishnu blessed Andhaka and made him the new King of the Asuras. 
+The battle turned into a slaughter. Shiva rode into the Asura hordes, but whenever he struck Andhaka and spilled his blood, new "Andhakas" sprang up from every drop of blood that hit the ground! 
+Shiva then unleashed his mighty trident, killing every single clone, until only the real Andhaka remained. In one swift movement, Shiva pierced his glowing trident straight into the Asura king and lifted him high into the air! 
 
-But Andhaka's envious, ambitious cousins could not bear to see him sitting on the throne. 
+Held aloft on the purifying trident under the scorching sun, Andhaka's body slowly withered back to skin and bone, his blood drained dry. The trident pierced his heart, but thanks to Brahma's boon, Andhaka did not die. Instead, the intense, purifying pain brought a great change over him—a change from arrogance to humility, from hatred to pure devotion. 
 
-"Our uncle was an absolute fool to have adopted a blind fellow!" they scoffed, openly mocking him in the royal court. "What kind of King will you be—blind as you are? Anyway, what claim have you to the kingdom of one who was not your real father?"
+"O moon-crested, one with the blue throat, forgive me," Andhaka wept. "O great lord of the universe, do not be angry with me."
+Hearing his sincere repentance, Shiva gently lifted Andhaka off the trident and set him down. "You are forgiven, O courageous Andhaka! Choose a boon."
 
-"One of us shall be King. We have decided," they declared cruelly. 
+Andhaka knelt before Shiva and Parvati. "O greatest of the great, my sin of fighting you was born of pride and delusion. I beseech the mother of the universe to look on me with compassion. Let me see her always as a mother. And let me stay with your *ganas*. I ask to be your devotee for eternity."
 
-Helpless against their bullying, the blind Andhaka began to think. *If only there was some way to become other than what I am. Yes... I know how!*
+"I grant you all this, Andhaka," Shiva smiled warmly. 
+As Shiva turned his benevolent glance upon him, Andhaka's memory flooded back, and he remembered the full story of his birth from Parvati's sweat. He realized the "most excellent of women" he had lusted after was his own mother! 
+"I should have been dead by now, according to the destiny I had chosen for myself," Andhaka wept, bowing deeply. "If I am still alive, it is because of your grace." 
 
-One pitch-dark night, Andhaka secretly fled the palace and went deep into the depths of an ancient forest. In that desolate place, he began to do severe penance, standing perfectly still on one leg, with his arms raised to the sky, surviving on nothing but air. 
-
-He was soon reduced to a mere skeleton. 
-
-At last, Lord Brahma appeared before him in a blaze of light. "O Asura, cease your terrible austerities. Choose any boon you desire."
-
-"My Lord, let me have undisputed control of the three worlds..." Andhaka begged, his hollow voice echoing. "...and let no death come to me."
-
-Brahma shook his head. "You shall become Lord of the three worlds. But whoever is born must eventually die. You may, however, choose the specific manner of your death."
-
-Andhaka thought carefully, trying to find an impossible condition. "Then, let the most excellent of women in the world, whatever her age, be like a mother to me," he declared cleverly. "And should I ever look upon her as anything but mother, let destruction befall me instantly."
-
-*Who would ever fall in love with their own mother figure?* he thought triumphantly. *I am immortal!*
-
-Brahma smiled, knowing the truth of Andhaka's real birth. "So be it."
-
-Brahma touched Andhaka's skeletal forehead. Instantly, Andhaka gained the precious gift of vision! And at once, his frail body became full-bodied, incredibly handsome, and immensely strong. 
-
-The transformed Andhaka confidently returned to his palace. "Andhaka? Surely a blessed boon has given you both sight and this beautiful form!" his cousins gasped in shock. Awed by his newfound vigour, they offered absolutely no resistance, and he easily took his throne. 
-
-Drunk on his new power, Andhaka set out with his armies and quickly conquered the Earth and then Heaven. "Indra, you and the Devas shall pay me heavy tribute from now on," he ordered the defeated gods. 
-
-Andhaka was now the absolute master over all. But with supreme power came deep corruption. He abandoned himself to a life of complete indolence and pleasure, surrounding himself with bad companions who spurred him to greater and greater evil. He and his wicked friends began to frequent holy sites of sacrifice, brutally harassing the peaceful sages. 
-
-"Don't you know? To offer sacrifice to the Devas and not to me, is now a terrible crime!" Andhaka would laugh, destroying the holy fires. 
-
-Blinded by intense pride, he completely forgot the destiny he had chosen for himself. 
-
-Once, he happened to come to the beautiful Mandara Mountain. "What a delightful place! Friends, we shall stay here awhile," he decided. 
-
-One day, while exploring the mountain, Andhaka's ministers came upon a strange sight. "Do you see that? A hermit in our land?" one frowned. 
-
-"What a beautiful woman!" another gasped, pointing to the hermit's companion. "What are they doing here? Our King must hear about her!"
-
-At once, the ministers rushed back to Andhaka's camp. "O Lord of Asuras, in a mountain cavern not far from here, we saw a strange hermit immersed in meditation, and with him was a truly beautiful lady. Such beauty I have never set eyes on before."
-
-"Why didn't you find out who she is? Go, now! Bring her here to me at once," Andhaka ordered greedily. 
-
-The ministers rushed back to the cave and stood waiting quietly until the hermit finally opened his eyes. 
-
-"Look at your uncouth self. You are utterly unworthy of her," the ministers sneered at the hermit. "Our King has ordered you to hand her over to him peacefully."
-
-"We are the ministers of Andhaka, the Lord of the three worlds," they boasted. "Our King would like to know who you are, what you are doing here, and who this beautiful lady is."
-
-The hermit, who was none other than Lord Shiva, remained perfectly calm. "I am a hermit, observing the Pashupata vow, and engaged in penance. This beautiful young woman is my wife."
-
-"This lady of such great charm, your wife!" the ministers laughed mockingly. "The Rakshasa is welcome to come and take her. You arrogant rogue! He will come and take her by force."
-
-The ministers returned with Shiva's message and delivered it to Andhaka. "We advise you to put him in his place at once," they urged. 
-
-Andhaka blazed up in absolute anger, like a fire fed with ghee. "Yes, I will attack that crude hermit! Let him know exactly who Andhaka is!"
-
-He gathered his weapons and set out for the mountain cave. As he arrogantly approached its entrance, a powerful warrior stepped in his path. 
-
-"I am Viraka—my master's guard. Who are you? What do you want here?" the warrior challenged him. 
-
-"Out of my way!" Andhaka roared, hurling his weapons. 
-
-But Viraka was no ordinary guard. He swiftly deflected the attack and unleashed a devastating shower of magical missiles. The counter-attack was so deadly that Andhaka panicked and had to run for his very life back to his camp. 
-
-Some time later at the cave, Shiva turned to Parvati. "Dear one, I see fear and sorrow in your eyes. I am going away to a quiet place to perform the most severe austerities to free you from them. Viraka will stand guard over you when I am away."
-
-As soon as Shiva left, Andhaka, whose spies were watching the cave, immediately learned of the hermit's departure. Drawn blindly by his destiny, Andhaka gathered a massive Asura army and returned to the cave to claim the beautiful woman. 
-
-"Fell the wretch! Fell him!" Andhaka ordered his troops. 
-
-A great struggle ensued once again with Viraka. But this time, vastly outnumbered, it was Viraka who collapsed, almost completely buried under a huge pile of Asura weapons. 
-
-"Aha! Now to get hold of her!" Andhaka laughed triumphantly, stepping over the fallen guard. 
-
-Suddenly, a blinding flash of light filled the cave. A host of powerful, divine female warriors—the Matrikas—materialized out of thin air! 
-
-"Do not worry, O Parvati. We are by your side now," they announced. 
-
-Eyes flashing in pure anger, the divinities launched a devastating attack on the Asuras. They sent forth mighty streams of magical energy, mercilessly belabouring Andhaka and his men. Andhaka's army fought back desperately, but it was a completely losing battle. 
-
-Then, blazing forth like a thousand suns, Lord Shiva himself returned! 
-
-"Shiva!" the Asuras gasped in terror as he tore through their ranks. 
-
-Encouraged by her husband's return, the happy Parvati drew a sword and fought even more valiantly to prove her skill and courage to her Lord. When Andhaka's army had been utterly beaten back, Shiva embraced her. "Parvati, you are truly a brave woman."
-
-Shiva then turned to the wounded guard. "You, too, Viraka, were no less valiant."
-
-As Parvati and Shiva entered the safety of the cave, Andhaka slowly ventured forward again. "I see no one. Where could they have gone? They must have gone into the cave," he muttered, drawing his sword. 
-
-But a massive Asura general named Vidhasa stepped forward. "Let the evil Asura fight on if he has the might to do so!" he roared, delivering a challenge directly to the cave. 
-
-The next morning, the final battle dawned. Shiva sent off a massive army of Devas under the command of Viraka to meet the Asura threat. 
-
-The two forces had barely advanced upon one another when... LO! The Asura general Vidhasa began to grow! He expanded into a towering, terrifying giant. He opened his cavernous mouth and, like a massive vacuum, began to swallow the Devas whole! Down the Asura's throat they went, hundreds and hundreds of them. 
-
-Viraka alone managed to escape the deadly suction. He fled back to the cave and told Shiva what had happened. 
-
-Shiva calmly stepped out of the cave and began to laugh. A blinding, pure white light radiated from him, spreading over the entire Mandara region. The intense, purifying light struck the giant Asura. And sure enough, Vidhasa's mouth was forced violently open against his will! 
-
-Out came Viraka, followed by all the swallowed Devas, tumbling onto the ground. They immediately resumed the battle, wreaking absolute havoc upon the stunned Asuras. 
-
-But the Asura general wasn't finished. With a sudden lunge, he managed to swallow Shiva himself! 
-
-"Oh, no! How will my master tackle these evil creatures all alone?" Viraka panicked. 
-
-Inside the beast's dark belly, Shiva simply began repeating a powerful, magical chant that brings on the throwing up of what is swallowed. The spell worked instantly. Shiva was violently thrown up, returning to the battlefield with his resplendent form charged with fresh, divine vigour. 
-
-He rode straight up to the Asura hordes. "Shiva! You are not finished with me as yet," Andhaka yelled, charging forward with his weapons. "Beware, O wretch, of Andhaka's might!"
-
-Shiva drew his mighty Trident, the Trishul, and unleashed a devastating attack. His Trident easily killed every single one of the charging Asura generals. 
-
-But as the Asuras' blood dripped onto the earth, a terrifying magic took hold. Suddenly, many identical Andhakas began to rise up everywhere from the Asura's dripping blood, each one screaming and attacking the Devas! 
-
-Realizing the blood magic, Shiva summoned the divine mother Goddesses to drink the falling blood before it could touch the earth. Till at last, with almost all his blood sucked dry by the Goddesses, the real, exhausted Andhaka stood completely alone before Shiva. 
-
-In one swift, impossible movement, Shiva lunged forward and pierced his Trident directly into the Asura's chest, lifting him clean off his feet and holding him aloft high in the air! 
-
-Held up on that holy, purifying Trident, Andhaka's body rapidly withered to skin and bone under the scorching heat of the sun. The Trident had pierced his heart, but thanks to Brahma's boon, Andhaka did not die. 
-
-Instead, hanging there in terrible agony, a great, miraculous change came over him. The intense purity of Shiva's weapon burned away all his wicked arrogance, leaving only deep, humble devotion. 
-
-"O moon-crested, one with the blue throat, forgive me," Andhaka wept, pressing his hands together. "O great Lord of the Universe, do not be angry with me."
-
-Gently, Shiva lowered his weapon, lifted Andhaka off the bloody Trident, and set him safely on the ground. 
-
-"You are forgiven," Shiva smiled warmly. "O courageous Andhaka! Choose a boon."
-
-Andhaka knelt humbly before Shiva and Parvati. "O greatest of the great, my sin of fighting you on the battlefield was born of sheer pride and delusion," he wept. 
-
-He turned to look at Parvati, finally recognizing the mother who had held him when he was a blind, misshapen infant. 
-
-"I beseech the Mother of the Universe not to be angry with me, but to look on me with compassion," he pleaded softly, remembering his boon from Brahma. "Let me see her always as Mother."
-
-Shiva merely turned his benevolent glance upon Andhaka, and the dark curtain was finally lifted. In a flash of divine insight, Andhaka suddenly remembered the full, true story of his birth—how he was formed from Parvati's sweat and Shiva's heat, and how Parvati had lovingly held him. 
-
-"I should have been dead by now, according to the destiny I had foolishly chosen for myself," Andhaka realized in awe. "If I am still alive, it is only because of your infinite grace."
-
-"Let me stay with your Ganas (attendants)," Andhaka begged. "I ask to be your devoted servant for all eternity."
-
-"I grant you all this, Andhaka," Shiva blessed him. 
-
-Andhaka bowed deeply before his true father and mother, finally finding the peace and happiness he had been searching for all his life.
+Humbled and reborn in devotion, the dark lord finally saw the true light and found eternal happiness serving his divine parents.

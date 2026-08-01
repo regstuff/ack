@@ -1,55 +1,64 @@
-# Ellora Caves
+# Ellora Caves: The Glory of the Rashtrakootas
 
-In the 8th Century A.D., a new empire was about to rise in Central India. Indra, the ruler of Ellichpur, a principality of the Chalukyan Empire, nursed ambitions of extending the area of his influence. "Our forefathers emigrated to Ellichpur several generations ago and carved a principality for themselves here," he thought. "But to grow I need support. I must have strong allies."
+In the 8th century A.D., a new empire was about to rise in central India. Indra, the ruler of the Ellichpur principality within the Chalukyan empire, nursed ambitions of extending his influence. 
+"Our forefathers emigrated to Ellichpur several generations ago and carved a principality for themselves here," Indra told his brother Krishna. "But to grow, a kingdom should grow. I need support. I must have strong allies."
 
-When the wedding of Chalukya King Pulakeshi's daughter, Princess Bhavanaga, was arranged, Indra saw an opportunity. "If I could win her hand, our political influence would increase tremendously," he realized. But since she was bound to choose a groom from a larger principality, Indra took a drastic step. 
+When the wedding of the Chalukya King Pulakeshi's daughter was arranged, Indra saw an opportunity. "Princess Bhavanaga is going to select her husband today," he noted. "If I could win her hand, our political influence would increase tremendously."
+"You are impulsive, brother. I hope you are not planning something rash," Krishna warned, noticing a strange twinkle in Indra's eyes. 
 
-On the day of the wedding, Rashtrakuta Indra brazenly abducted Princess Bhavanaga! He managed to reach Ellichpur safely with his abducted bride, and there he married her. 
+But Indra was planning precisely that. So, on the day of the wedding, Rashtrakuta Indra dramatically abducted Princess Bhavanaga. 
+"The Emperor has declared war on us," Krishna said, as Pulakeshi sent men in pursuit. 
+But Indra managed to reach Ellichpur safely with his abducted bride, and there he married her. Pulakeshi was very angry, but their relations became friendly by the time Indra and Bhavanaga's first son, Dantidurga, was born. Dantidurga grew up in an atmosphere charged with the ambition and drive of his father. 
 
-King Pulakeshi was very angry with Indra, but their relations eventually became friendly by the time Indra and Bhavanaga's first son, Dantidurga, was born. 
+In A.D. 733, Indra died, leaving behind his brother Krishna and his young son Dantidurga. 
+"As a son you grieve for your dead father," Krishna comforted the young prince. "But you must strive hard to bring glory to the Rashtrakootas."
+On the following day, Dantidurga was crowned. He soon called on the Chalukya Emperor, Vikramaditya II. "Your late father was like a right arm to me. You have my blessings and good wishes," the Emperor told him. 
 
-Dantidurga grew up in an atmosphere charged with the ambition and drive of his father. "You must train yourself to be a good soldier. Only a good soldier can be a good general," Indra taught him. 
+In A.D. 738, Dantidurga received a message from the Emperor: "The Arabs are harassing Pulakeshi of Gujarat. Proceed forthwith to his aid."
+Dantidurga planned his attack carefully. "We will surprise them from behind," he decided. A fierce battle ensued, and the Arabs were soon routed. 
+The Emperor, Vikramaditya II, honoured the victorious kings. "Dantidurga of Ellichpur, I confer on you the titles Prithvivallabha (Hero of the world) and Khadgavaloka (Valorous swordsman)," the Emperor proclaimed. 
 
-In A.D. 733, Indra died, leaving behind his brother Krishna and his young son Dantidurga. Dantidurga mourned his father deeply, but his uncle Krishna encouraged him, "Yes, uncle. I will strive hard to bring glory to the Rashtrakootas." 
+Four years later, Emperor Vikramaditya died. Keertivarman, a weakling, succeeded him. Dantidurga realised it was time to expand his power. The valour shown by the Rashtrakoota king had strengthened the Emperor's faith in him, and he relied on Dantidurga to solve ticklish issues. 
+"Nandivarman, the Pallava of Kanchi, is causing trouble on my southern borders," the Emperor complained. "I want you to subdue him."
+"Your bidding shall be done, Emperor," Dantidurga agreed. He marched south and defeated the Pallava king. 
 
-On the following day, Dantidurga was crowned. When he called on the Emperor Vikramaditya II, the Emperor told him, "Your late father was like a right arm to me. You have my blessings and good wishes." 
+In pursuit of his policy, Dantidurga added to his possessions the Gurjara kingdom of Nandipura and appointed his nephew Karkha as regent. While on his way back after a successful campaign, he felt strangely attracted towards some beautiful hills. "Let us camp there tonight," he ordered. 
+The royal tents were pitched near the hills. Next morning, Dantidurga looked at the landscape. "There seems to be some magic in this place. It draws me like a magnet. Perhaps the place has some significance. We should build a temple to Shiva here, in these hills."
+The place which captured Dantidurga's heart was Ellora. 
 
-In A.D. 738, Dantidurga received a message from the Emperor: "The Arabs are harassing Pulakeshi of Gujarat. Proceed forthwith to his aid." 
+Dantidurga continued his campaigns, drawing the enemy out of Malwa and defeating them. To mark his victories, he performed the Hiranyagarbha Mahayajna in Ujjayini. 
+However, tales of Dantidurga's valour and generosity reached Keertivarman, the Chalukya Emperor, making him jealous and fearful. "Dantidurga is becoming too powerful. He must be taught a lesson," the Emperor decided, and declared war on him. 
+"The lust for conquest has bitten Dantidurga. I must strike before he gets too powerful," Keertivarman thought. 
+The two armies met in a fierce encounter. In the end, Keertivarman's forces were pushed back. Dantidurga returned to his capital amidst great rejoicings and rightfully claimed the title of Emperor, becoming Maharajadhiraja Parameshwara Paramabhattaraka. 
 
-"I will make arrangements for the campaign immediately," Dantidurga agreed. He marched to Navasari and fought a fierce battle, routing the Arab invaders. The Emperor honoured the victorious Dantidurga with the titles Prithvivallabha (Hero of the World) and Khadgavaloka (Valorous Swordsman). 
+Five years later, Dantidurga fell ill. He called his uncle Krishna to his deathbed. "Uncle, you know I have no child and heir to the throne. Please allow me to speak while I still have the strength to do so. When father died you asked me to shoulder the responsibility of the kingdom... and to bring glory to the Rashtrakootas!"
+"You have done well, Dantidurga," Krishna wept. 
+"Even as I lie dying... I hand over the reins of the kingdom to you... to rule, to conquer and to bring glory to the Rashtrakootas," Dantidurga whispered, and passed away in peace. 
 
-The valour shown by the Rashtrakoota king strengthened the Emperor's faith in him. He relied on Dantidurga to solve ticklish issues, such as defeating the Pallava Nandivarman of Kanchi, who was causing trouble on the southern borders. After a fierce battle, Nandivarman finally acknowledged defeat. 
+Soon after, Krishna was crowned Emperor. He appointed his son Govinda as the commander of his forces. 
+"Our first task is to see that Keertivarman ceases to be a threat to our empire," Krishna ordered. 
+Govinda accomplished his mission with resounding success, finally vanquishing the Chalukya power. 
 
-Four years later, Emperor Vikramaditya passed away. His successor, Keertivarman, failed to win the respect of his vassals. Dantidurga used this opportunity to expand his own domain, adding the Gurjara Kingdom of Nandipura to his possessions. 
+The Rashtrakootas were now the greatest power in the land, their influence stretching over the whole of central India, to Karnataka, the Konkan and Andhra. Krishna devoted himself wholly to ruling the country. 
+One day, his wife noticed his fatigue. "You seem tired, husband. The affairs of state are very taxing. Then let us get away from it for a few days."
+"Yes! And I know just the place where we can relax," Krishna smiled. 
 
-To mark his victories, Dantidurga performed the Hiranyagarbha Mahayajna (a grand sacrifice) at Ujjayini. 
+They travelled to the serene hills of Ellora. 
+"Years ago Dantidurga expressed a desire to build a temple of Lord Kailasanath in these hills," Krishna told his queen. "I promised that I would fulfil all his dreams but things kept cropping up and I could not build the temple."
+Moved by the beautiful surroundings, the queen made a vow. "I take a vow that I shall not touch a morsel of food until I see the kalasha (finial/dome) of the temple of Lord Kailasanath."
+The Emperor was taken aback. "Temples cannot be built in a day or two. It may take months, even a year..." 
 
-News of Dantidurga's growing power reached Keertivarman. "Dantidurga is becoming too powerful. He must be taught a lesson," Keertivarman decided, declaring war. 
-
-The two armies met in a fierce encounter. In the end, Keertivarman's forces were pushed back, and Dantidurga rightfully claimed the title of Emperor. "Glory to Maharajadhiraja Paramabhattaraka Dantidurga!" his troops cheered. 
-
-Five years later, Dantidurga fell ill. "I have no child and heir to the throne..." he told his uncle Krishna. "I hand over the reins of the kingdom to you... to rule, to conquer and to bring glory to the Rashtrakootas..." Having settled the matter, Dantidurga passed away in peace. 
-
-Krishna was crowned Emperor, and he appointed his son Govinda as the commander of his forces. They finally vanquished Keertivarman and brought peace and prosperity to the great country. 
-
-"You seem tired, husband," Krishna's queen noticed one day. "Then let us get away from it for a few days," he agreed. 
-
-They travelled to the serene hills of Ellora. While exploring the beautiful caves, the queen suddenly made a solemn promise. "I take a vow that I shall not touch a morsel of food until I see the kalasha (topmost spire) of the temple of Lord Kailasanath." 
-
-The Emperor was taken aback. "Temples cannot be built in a day or two. It may take months, even a year... I do not know what prompted me to take the vow," he worried, "but now that I have taken it, I will have to fulfil it." 
-
-Krishna summoned the best sculptor in the land, a man named Kokkas from Pratishthana. 
-
+Krishna summoned Kokkas, the best sculptor from Pratishthana. 
 "I have 7000 craftsmen and artisans with me. If all of them are put on this job, it will take sixteen months," Kokkas estimated. 
+Krishna told the architect about the queen's vow. "She will not eat till she sees the kalasha of the temple! Can she live without food for sixteen months? Impossible!"
+Kokkas went to the site where the temple was to be built and studied the rock formations. 
+"That's wonderful! But how will you do it?" Krishna asked when Kokkas promised a solution. 
+"You will have my answer within a week. But during the seven days when I work, the place should be cordoned off and no one should approach within the distance of a kosa. On the eighth day, do please lead the queen to the temple. She can see the kalasha of the temple."
 
-"Sixteen months! Can she live without food for sixteen months? Impossible!" Krishna despaired. 
+On the eighth day, Krishna and the queen were amazed. On the top of the hillock was a beautifully carved kalasha and an orange-coloured flag fluttered in the breeze. 
+"The vow is fulfilled, true, but it is a trick! Where is the temple?" Krishna asked. 
+"The temple is yet to be carved, sir," Kokkas explained. "The only way to fulfil the vow was to carve the temple working down from the top! The task is difficult but the temple should be such as befits the glory of the Rashtrakoota Empire."
 
-But Kokkas was a master of his craft. He cordoned off the site and forbade anyone from entering. On the eighth day, he led the queen to the site. 
+Kokkas with his seven thousand artisans set about to build the Kailasanath temple, carving it entirely out of a single solid rock mountain from the top down. The king came frequently to see the progress of the work. In due course the magnificent temple took shape, and the consecration was performed with appropriate rites. 
 
-On the top of a hillock was a beautifully carved kalasha, with an orange flag fluttering in the breeze. "The vow is fulfilled, true, but it is a trick! Where is the temple?" the King asked. 
-
-"The temple is yet to be carved, sir," Kokkas explained gently. "The only way to fulfil the vow was to carve the temple working down from the top! The task is difficult but the temple should be such as befits the glory of the Rashtrakoota Empire." 
-
-Kokkas and his seven thousand artisans set about carving the massive Kailasanath temple downwards out of a single solid rock. The king came frequently to see the progress of the work, and in due course, the majestic temple took shape. 
-
-The Rashtrakoota empire and its great kings may have been lost in the lanes of history, but the magnificent Kailasanath temple bears testimony to those glorious days to this very moment.
+The Rashtrakoota Empire and its great kings have been lost in the lanes of history. But the breathtaking Kailasanath temple at Ellora bears testimony to those glorious days and their remarkable vision.

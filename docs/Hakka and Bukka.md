@@ -1,101 +1,32 @@
-# Hakka and Bukka
+# Hakka and Bukka: Founders of the Vijaynagar Empire
 
-In the year 1310, Malik Kafur, leading the Delhi Sultan's army, besieged the Warangal fort. 
+In 1310, Malik Kafur, leading the Delhi Sultan's (Ala-ud-din Khilji) army, besieged the Warangal fort in the Deccan plateau. Inside the fort, King Pratapa Rudra of Warangal decided to mount an all-out attack rather than starve. But the battle was ill-fated. As an act of surrender, Pratapa Rudra was forced into sending a gold image of himself with a gold chain around its neck to Malik Kafur. 
 
-Inside the fort, King Pratapa Rudra of Warangal discussed the situation with his ministers. "Our army's morale is still high, isn't it?" 
+Two years later, when Sultan Khilji died, King Pratapa Rudra saw an opportunity to throw off the alien yoke and stopped paying tribute to Delhi. But the new Sultan, Ghiyas-ud-din Tughluq, attacked again, and the unlucky king was defeated once more. The common people groaned in frustration as the victors rode away with their rich booty. 
 
-"Yes, your majesty. But our supplies are low. And Malik Kafur is pressing hard," his minister replied. 
+Meanwhile, Hakka and Bukka, sons of the chieftain Sangama, arrived at the palace at Warangal. Drawn by Pratapa Rudra's leadership and driven by love for their land, the two valiant brothers offered their services to drive the Sultan's men away. 
+When the Sultan's army, led by the prince himself, attacked again, Hakka and Bukka fought bravely. One night, they spread a rumour in the enemy camp that Sultan Ghiyas-ud-din was dead. Demoralised, most of the military chiefs left with their men for Delhi in the dead of night. Hakka and his men ambushed them on the way. Caught between the two armies of Hakka and Bukka, the enemy was butchered. 
 
-"Attack is the best form of defence. Especially when we have little choice," Pratapa Rudra decided. 
+Pratapa Rudra was jubilant, but Hakka warned that danger still lurked. Two years later, the Sultan's army was again on the march. Pratapa Rudra sallied forth majestically to face the enemy ranks. But he penetrated too deep into the enemy lines and his horse was struck by an arrow. Though unhorsed, the king held the enemy soldiers at bay until a vicious blow sent his sword flying. The king was captured, and the soldiers of Warangal fled in panic. Hakka and Bukka followed unnoticed as the king was taken to Delhi, hoping to rescue him. But their hearts sank when they discovered that Pratapa Rudra had killed himself to save his honour. 
 
-The two armies clashed head-on. The battle was an ill-fated one for Warangal. As an act of surrender, Pratapa Rudra was forced into sending a gold image of himself with a gold chain around the neck to Malik Kafur. 
+Dejected but determined to continue their mission, Hakka and Bukka rode southwards. They encountered a tiger, which was killed by Kumara Rama, Prince of Kampili. Kumara Rama took them to his father, King Kampili Deva, who welcomed them to stay and continue their fight for freedom. 
 
-Malik Kafur returned to Delhi. "I must hasten to Delhi to inform the Sultan that I have opened the road for the conquest of the South," he declared. 
+A few days later, Baha-ud-din, the nephew of the new Sultan Muhammad-bin-Tughluq, sought refuge in Kampili, fleeing from his uncle's wrath. King Kampili Deva mercifully granted him asylum. Before long, Tughluq's men tracked Baha-ud-din down and laid siege to the fort. The king refused to surrender the refugee, declaring, "We'd rather die than betray those who have sought refuge."
+A fierce battle followed. Tughluq's army was repelled twice, but Kampili Deva knew the siege would resume. He decided to secretly shift the capital to the impregnable fort of Anegundi, on the bank of the river Tungabhadra. 
 
-Two years later when Sultan Khilji died, a new Sultan, Ghiyas-ud-din Tughluq, took power. "Now is the time for us to throw off the alien yoke. Stop our tribute to Delhi," Pratapa Rudra decided. 
+When Tughluq's commander learned of the exodus, he attacked Anegundi. Knowing the battle was lost, King Kampili Deva sent Baha-ud-din away to the Hoysala kingdom for safety. At dawn, the ladies of the royal family observed Jauhar by entering the fire, and the king and the prince rode out to fight to the death with Hakka and Bukka. Hakka and Bukka fought valiantly but were wounded and fell unconscious. 
 
-In the consequent battle with the new Sultan, the unlucky king was again defeated. As the victors rode away with their rich booty... the common people groaned in frustration. 
-
-"The greedy men from Delhi will return again to ransack our cities. We must resist. Our king is brave but he is old. The young men of this land must come to his aid," the people cried. 
-
-Meanwhile Hakka and Bukka, sons of the chieftain, Sangama, were already on their way to the palace at Warangal. 
-
-"Hakka, what is it that attracts you to Pratapa Rudra?" Bukka asked. 
-
-"He is a born leader. Though twice defeated, he is sure to rise again to fight the Sultan," Hakka replied confidently. 
-
-At Warangal, Pratapa Rudra welcomed them. "You say you are from the land of Virupaksha (Hampi). What brings you here?" 
-
-"Love of our land. We will drive the Sultan's men away," Hakka promised. 
-
-Once again Pratapa Rudra refused to pay tribute. "Let him come. This time we are fully prepared," the king declared. 
-
-The Sultan's army attacked, led by the prince himself. In the battle that followed, Hakka and Bukka fought valiantly. The Sultan's army was repulsed. 
-
-Pratapa Rudra was jubilant. "Let's celebrate our great victory." 
-
-"Not yet, your majesty. Danger still lurks," Hakka warned. 
-
-That night, Hakka proposed a plan. "True or not, we must spread the rumour in the enemy camp to suit our own ends. A good idea. It should demoralise their army." 
-
-They spread the rumour that Sultan Ghiyas-ud-din was dead. Most of the military chiefs in the enemy's camp believed the rumour. "The Sultan is dead. Let's return to Delhi," they panicked. "Our presence is needed there. We must start at once." 
-
-In the dead of night, without informing their commander, most of the chiefs left with their men for Delhi. On the way, they were ambushed by Hakka and his men. Caught between the two armies of Hakka and Bukka, the enemy was butchered. 
-
-But the victory was short-lived. The Sultan's army marched again. "Your majesty, the Sultan's army is again on the march. Any time now we will be attacked," the spies warned. 
-
-As Pratapa Rudra sallied forth majestically, Hakka was worried. "The king has penetrated too deep into the enemy lines, Bukka. Rush to his side, Hakka. I'll take care of this end." 
-
-Struck by an arrow, Pratapa Rudra's horse reeled. "The king! Kill him!" the enemy shouted. Though unhorsed, the king held the enemy soldiers at bay. But the king was outnumbered. A vicious blow from the enemy sent his sword flying. 
-
-"Don't harm him! The Sultan wants him alive," the enemy commander ordered. The king was captured, and the soldiers of Warangal ran helter-skelter. 
-
-Later, as Pratapa Rudra was being taken to Delhi, Hakka and Bukka followed unnoticed. But what they found out made their hearts sink. 
-
-"Pratapa Rudra has killed himself," the soldiers said. "The Sultan will not pardon our leaders for this." 
-
-"Alas, we have lost our only hope," Hakka grieved. 
-
-The two brothers went on foot to the Hoysala capital. They called on the Hoysala king, Veera Ballala. "Tughluq's army took us by storm; we were defeated," Veera Ballala told them. "But I could appoint you as governor for the northern part of our empire." 
-
-"However, the post carries with it only authority; no army, no territory," the king added. 
-
+When they regained consciousness, they found the battlefield littered with corpses. The king and the prince had fallen. Hakka and Bukka went to the Hoysala capital to check on Baha-ud-din, only to learn from the Hoysala king, Veera Ballala, that Tughluq's army had defeated them and captured Baha-ud-din. 
+"I could appoint you as governor for the northern part of our empire," King Veera Ballala offered. "However, the post carries with it only authority; no army, no territory."
 "I'll build an army and liberate the lost territory for you, your majesty," Hakka promised. 
 
-As Hakka and Bukka left for Kampili, the king warned them, "You were beaten at Warangal. You were beaten again at Kampili. Yet you talk of victory. What keeps you going, Hakka?" 
+As they neared Kampili, a shepherd warned them that the Sultan's governor had announced a reward for their heads. Disguising themselves as shepherds, Hakka and Bukka lay low. Deep in the forest, they stumbled upon Sage Vidyaranya in meditation. They waited patiently, and when the sage opened his eyes, they fell at his feet. 
+"I have been waiting for you," Sage Vidyaranya said. "I need men of vision and valour."
+When Hakka explained the difficulty of raising an army secretly, the sage led them into a narrow cave passage that opened up into a spacious hideout. It connected to a temple near the fort. Men coming to the temple for religious discourses could secretly assemble in the hideout to be trained. 
 
-"What else, except love for my motherland, your majesty?" 
+Vidyaranya's discourses began attracting large crowds. Under the cover of religion, Hakka and Bukka trained thousands of soldiers. One dark night, they launched a surprise attack on Anegundi. Hakka scaled the fort wall, threw open the gates, and Bukka rushed in with their men. The governor fled, and the people gave Hakka and Bukka a rousing welcome. 
 
-When the two brothers were about to enter Kampili, a shepherd stopped them. "My lords, the Sultan's governor has announced a reward for your heads. Don't enter Kampili." 
+One day, while hunting across the river Tungabhadra, Hakka and Bukka's dogs chased a hare. Suddenly, the hare turned back and faced the dogs fearlessly. When they reported this strange incident to Vidyaranya, the sage said, "It was the aura of that place which made the hare bold. Build a fort here and found a kingdom."
 
-"We will have to lie low for the time being," Hakka decided. 
-
-Thus Hakka and Bukka disguised themselves as shepherds and hid from the governor of Kampili. One day, the two brothers took the sheep out to graze deep into the forest. 
-
-"Look, brother! A holy man in meditation. Let's seek his blessings," Bukka said. 
-
-It was Sage Vidyaranya. When the sage opened his eyes, the brothers fell at his feet. "I have been waiting for you. The desolate state of my native land makes me very sad. I need men of vision and valour," Vidyaranya told them. 
-
-"I think I can help you there. Come with me," the sage offered. He led them to a secret cave. "We can train thousands of soldiers in this spacious hide-out!" 
-
-Vidyaranya's discourses started attracting large crowds. "And the Lord said: Action, then, O Arjuna, is thy duty..." Some officials eyed these gatherings with growing suspicion, but the governor, Muhammad Khan, dismissed them. "That is a pious crowd. Leave it alone." 
-
-After the discourse, the apparently harmless and pious men were trained to be soldiers by Hakka and Bukka in the secret cave. 
-
-One day, Hakka and Bukka rode out with their men. Under cover of a dark night, they attacked Kampili. Hakka climbed the wall of the fort, opened the gate, and Bukka rushed in. In the battle that followed, the governor fled. The people of Kampili gave a rousing welcome to Hakka and Bukka. 
-
-"We are free once again!" the people cheered. 
-
-In the hour of triumph, Vidyaranya had a word of caution. "This is only the beginning. Your goal lies far ahead." 
-
-One day Hakka and Bukka crossed the river Tungabhadra while out on a hunt with their dogs. As they reached the opposite bank, their dogs gave chase to a hare. Then all of a sudden, it came to a halt and faced the dogs. 
-
-"What, a hare turning back to give fight to dogs! Strange!" Hakka marvelled. 
-
-When this incident was reported to Vidyaranya, the sage understood its significance. "It was the aura of that place which made the hare bold. Build a fort here and found a kingdom." 
-
-Soon a city came up at that exact spot. "You are the source of strength and inspiration to us. We will call the new city Vidyanagara," Hakka told the sage. 
-
-"Don't name it after a mere mortal. This city will herald victory for the country. It is a city of victory. Call it Vijayanagara," Vidyaranya advised. 
-
-Assuming the name Harihara Raya, Hakka became the first king of Vijayanagara. The small kingdom eventually rose to be a mighty empire that flourished for over three hundred years.
+Soon, a city was built at that exact spot. The brothers wanted to name it Vidyanagara after the sage, but Vidyaranya said, "Don't name it after a mere mortal. This city will herald victory for the country. It is a city of victory. Call it Vijayanagara."
+Assuming the name Harihara Raya, Hakka became the first king of Vijayanagara. The small kingdom eventually rose to be a mighty empire that flourished for over three hundred years, defending the South from invaders.

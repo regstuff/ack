@@ -1,111 +1,62 @@
 # Garuda
 
-Sage Kashyap, who had married thirteen of Daksha's daughters, was the progenitor of the Devas and the Asuras, and much of the animal kingdom as well. 
+Garuda is a mythical bird, represented as a large white-necked eagle, and has been held in great veneration in India from time immemorial. The reason for the enmity between eagles and serpents is traced in the Adi Parva of the Mahabharata to the jealousy between Kadru and Vinata, the mothers of the serpents and Garuda respectively. 
 
-One day, he decided to confer a boon each on two of his wives, Vinata and Kadru. He was going to perform a yagna for more offspring. 
-
-"I would like to be the mother of a thousand mighty snakes," Kadru said. 
-
-"And you, Vinata?" 
-
+Sage Kashyap, the progenitor of the devas, asuras, and much of the animal kingdom, had married thirteen of Daksha's daughters. One day he decided to confer a boon each on two of his wives, Vinata and Kadru. 
 "I would like to have two sons who will surpass Kadru's thousand snakes in strength and valour," Vinata asked. 
+"I would like to be the mother of a thousand mighty snakes," Kadru requested. 
+Kashyap agreed and went away to prepare for a yagna to fulfill their wishes. 
 
-His son, Indra, King of the Devas, came with the diminutive Valkhilya rishis and other celestial beings to assist him. Indra was tasked with fetching fuel for the sacrificial fire. 
+During the preparations, Indra, king of the devas, arrived with the diminutive Valkhilya rishis to assist. As the tiny rishis struggled to carry a mere twig, Indra flew past carrying a heavy log single-handed and laughed mockingly at them. "Ha! Ha! Ha! Ho! Ho! Ho! Look at those puny rishis."
+Furious, the rishis used the power of the sacrificial fire to exact revenge. "By the fruit of our penances may another Indra be born - mightier than the present one! Let him be capable of going anywhere at will, of mustering any measure of strength at will, and of assuming any form at will."
 
-As Indra flew back carrying a heavy log single-handed, he saw the tiny Valkhilya rishis struggling to carry a single twig. "Ha! Ha! Ha! Look at those puny rishis struggling with a mere twig!" Indra laughed mockingly. 
+A frightened Indra begged Kashyap to save him. Kashyap pacified the rishis. "O holy ones, the present Indra has been appointed lord of the heavens by Brahma. Let the Indra you create be lord of the winged creatures."
+The rishis relented. "So be it. Since this yagna is for offspring for you, accept the fruit of our actions." Thus, Vinata was destined to bear this mighty being. 
 
-The proud rishis were deeply insulted. "His pride must be humbled," they decided. 
-
-They started their own sacrificial fire, chanting powerful mantras. "By the fruit of our penances may another Indra be born—mightier than the present one! Let him be capable of going anywhere at will, of mustering any measure of strength at will, and of assuming any form at will." 
-
-Indra was terrified. "I'd better ask my father to intercede with the rishis on my behalf," he panicked. 
-
-Sage Kashyap spoke to the angry rishis. "O holy ones, the present Indra has been appointed Lord of the heavens by Brahma. Let the Indra you create be Lord of the winged creatures. Be gracious to him who bows before you." 
-
-The rishis relented. "So be it. Since this yagna is for offspring for you, accept the fruit of our actions. You shall soon be the mothers of the sons you desire," they told Vinata and Kadru. 
-
-Months later, Vinata brought forth two eggs and Kadru a thousand. They were incubated separately in warm vessels. Years rolled by. 
-
-One day, Kadru's sons burst open their shells—a thousand wriggling snakes! 
-
-For the first time in her life, Vinata felt the pangs of jealousy and impatience. "I'll break open one of them. Perhaps my sons need help," she thought. 
-
-So she broke open one of the eggs. To her horror, the lower half of the child inside was a mere lump of flesh. 
-
-"Alas! What have I done!" she cried. 
-
-The half-formed child pointed an accusing finger at her. "You shall pay for your impatience with slavery. But if you can be more patient with the other egg, my brother will deliver you from your bondage," he cursed. The child ascended to the skies to become Aruna, the charioteer of Surya, the Sun-god. 
+Months later, Vinata brought forth two eggs and Kadru, a thousand. They incubated them in warm vessels. Years rolled by. Kadru's eggs hatched, bringing forth a thousand snakes. But Vinata's eggs showed no signs of hatching. Overcome by impatience and jealousy, Vinata broke open one of her eggs. To her horror, the lower half of the child inside was just a lump of flesh. 
+The malformed child pointed an accusing finger at her. "You shall pay for your impatience with slavery. But if you can be more patient with the other egg, my brother will deliver you from your bondage." The child then ascended the skies to become Aruna, the charioteer of Surya, the sun-god. 
 
 A few days later, Vinata and Kadru saw the celestial steed, Uchchaishrava, fly past. 
+"Can you tell me the colour of that horse?" Kadru asked. 
+"It is white all over. I can lay a wager on it," Vinata said confidently. 
+"I think it has a black tail. I'm willing to wager you my freedom on that. Yes, let the loser become the other's slave!" Kadru proposed. They agreed to examine the horse the next day. 
 
-"It is white all over. I can lay a wager on it," Vinata said confidentially. 
+Kadru soon had second thoughts. Fearing she might be wrong and become a slave, she ordered her thousand serpent sons to wrap themselves around the horse's tail to make it appear black. The next day, when Vinata and Kadru saw the horse, its tail appeared black. Vinata, deceived by the trick, became Kadru's slave. 
 
-"I think it has a black tail. I'm willing to wager my freedom on that. Let the loser become the other's slave!" Kadru challenged. They agreed to examine the horse the next day. 
+Meanwhile, Vinata's second son finally hatched. He was a magnificent, gigantic bird. Capable of changing his form at will, he increased his size and soared across the ocean to his mother's side. Vinata shed tears of joy when she saw him. 
+At that moment, Kadru arrived with her sons. "O Vinata, my sons and I wish to visit the pleasure island of the Nagas. Take us there," she ordered. 
+When the great bird saw his mother acting as a beast of burden for Kadru, he was perplexed. "Are we their slaves? Why does my mother demean herself so?"
+"Dear one, please take the snakes on your back," Vinata pleaded. 
 
-But Kadru had second thoughts. "Could I be wrong? Vinata was very confident. I must make the horse's tail appear black even if it isn't." 
-
-She went to her thousand snake sons. "Go, cover the tail of that horse and make it appear black. I must safeguard my freedom," she ordered. 
-
-When some of the snakes hesitated, Kadru cursed them angrily. "And if we don't, she might burn us all up in King Janamejaya's snake sacrifice!" they realized. So they slithered out and covered the white horse's tail, making it look black. 
-
-The next day, when Vinata and Kadru examined the horse, its tail was indeed black with the clinging snakes. Vinata lost the wager and was forced into slavery, bearing Kadru on her shoulders. 
-
-Meanwhile, at home, Vinata's second son broke his shell and emerged. It was a mighty eagle, Garuda! He grew rapidly and soared into the skies. 
-
-When he returned, he saw his mother serving as a slave to the snakes. "Mother, why must we do the bidding of the snakes?" he asked. 
-
-Vinata wept and told him the story of the wager and how she was tricked. 
-
-Garuda went to the Nagas. "I wish to buy our freedom. What is your price?" 
-
+Enraged by the humiliation, the bird increased his size, suddenly rose into the air, and flew straight towards the scorching sun. The snakes were alarmed. "Mother! Help! We are being scorched."
+Kadru prayed to Indra, who sent dark, rain-bearing clouds to save the snakes. The bird, seeing Indra's intervention, descended to the island. 
+There, Vinata told her son the story of the wager and how she had lost her freedom through deception. 
+Determined to free his mother, the mighty bird went to the Nagas. "I wish to buy our freedom. What is your price?"
 "Bring us Amrit (the nectar of immortality) and you are free," they demanded. 
 
-Garuda agreed and rose to the skies. On his way to heaven, he met his father, Sage Kashyap. "Father, where can I find enough food to increase my energy?" 
+With his mother's blessing, the great bird spread his wings and rose to the skies. As he flew, he met his father, Sage Kashyap. Kashyap directed him to a lake where a huge tortoise and an elephant were fighting, advising him to eat them to increase his energy. The bird swooped down, seized one animal in each claw, and flew off to find a place to eat. 
 
-Kashyap pointed to a lake. "Down there you will find a huge tortoise and an elephant. They are bent on killing each other. Eat them and proceed on your mission." 
+He saw an old banyan tree on the seashore. But the moment he alighted on its massive branch, it broke under his tremendous weight. As the branch fell, the bird noticed some tiny Valkhilya rishis hanging from it in deep meditation. To save them, he caught the falling branch in his beak. The rishis, amazed by his speed and strength, blessed him: "May this great bird be called Garuda, one who is capable of carrying great weight."
+Garuda carefully flew to the uninhabited Gandhamadana mountains, waited for the rishis to leave safely, and then dropped the branch and ate his meal. 
 
-Garuda swooped down, seized the elephant and tortoise in his talons, and flew to find a strong tree to perch on while he ate. He alighted on a massive banyan tree branch, but the moment he landed, the branch broke! 
+His strength renewed, Garuda resumed his flight to the abode of the devas. In heaven, terrible omens appeared. Brihaspati warned Indra that Garuda, the invincible son of Kashyap and Vinata, was coming for the Amrit. Indra ordered his devas to guard the nectar with their lives. 
 
-As the branch fell, Garuda saw tiny figures hanging upside down from it. "Why! There are some rishis hanging from it. They must not be harmed," he realized. It was the diminutive Valkhilya rishis! 
+Garuda arrived, raising a blinding storm of dust with his massive wings. Indra ordered Vayu to blow the dust away, and the devas attacked Garuda with all their weapons. Garuda humoured them for a while before letting out a mighty roar and attacking, easily routing the entire heavenly host. 
 
-Garuda caught the falling branch in his beak and flew on gently, searching for a place to put it down safely. He flew all the way to the Himalayas, where the rishis finally left the bough. 
+Next, Garuda faced a massive wall of fire surrounding the Amrit. Assuming ninety times ninety mouths, he swallowed the waters of several rivers and extinguished the flames. 
+Beyond the fire was a rapidly revolving wheel with razor-sharp edges. Garuda reduced his size, slid under the wheel, and flapped his wings incessantly, throwing up dust to blind the two poisonous serpents guarding the pot of Amrit. He quickly killed the serpents, snatched the pot, and then suddenly grew in size, shattering the deadly wheel to pieces. 
 
-His meal over, Garuda resumed his flight to the abode of the Devas. 
-
-Meanwhile, terrible omens appeared in Indra's heaven. Lightning struck without clouds, and meteors rained down. Indra consulted his guru, Brihaspati. 
-
-"Garuda, the invincible son of Kashyap and Vinata, is on his way to rob you of the nectar of immortality. And he can do it," Brihaspati warned. 
-
-Indra and his Devas stood fully prepared to beat him back, surrounding the blazing fire that protected the Amrit. 
-
-When Garuda arrived, the skies turned dark with the dust raised by his flapping wings. The Devas were blinded. Garuda attacked with a mighty roar, tearing through the Deva army with his beak, talons, and wings. 
-
-Overcoming the onslaught, Garuda approached the pot of Amrit. It was surrounded by a wall of fierce flames. Garuda flew to a river, filled his ninety times ninety mouths with water, and extinguished the fire. 
-
-Next, he faced a revolving wheel with razor-sharp edges. Garuda reduced his size in an instant, slipped through the spokes, and reached the centre. 
-
-There, two poisonous serpents stood guard, their eyes blazing. Garuda threw up dust to blind them, snatched the pot of Amrit, and rose into the sky! 
-
-As he flew along, Lord Vishnu saw him. Vishnu was pleased. "His act of self-denial pleases me. He has the nectar of immortality in his possession but has not touched a drop of it." 
-
-Vishnu offered him boons. "I wish to be immortal and ever free from disease without drinking the Amrit. And I wish to be above you," Garuda requested. 
-
+With a cry of triumph, Garuda rose into the sky. Lord Vishnu, who had been watching, was deeply impressed. "His act of self-denial pleases me. He has the nectar of immortality in his possession but has not touched a drop of it."
+Vishnu offered Garuda two boons. 
+"Let me be above you. And let me be immortal and ever free from disease," Garuda asked. 
 "So be it. Now please go and perch on my flagstaff. Even so will you sit above me," Vishnu smiled. 
+Garuda then offered Vishnu a boon in return. "Then be my vehicle, O mighty Garuda," Vishnu requested. 
 
-Garuda was pleased. "O Great One, I too shall grant you a boon." 
+As the elated Garuda flew on, Indra hurled his thunderbolt (Vajra) at him. The weapon did not harm a single feather. Amazed by Garuda's power, Indra asked for his eternal friendship. Garuda agreed and revealed the true extent of his limitless strength. 
+"Accept my sincere friendship," Indra said. "And if you have no use for the nectar, return it to me. Those to whom you wish to give it will always oppose us."
+"I cannot return the nectar, for I must buy my mother's freedom," Garuda explained. "But I can help you retrieve it." He devised a plan with Indra. 
+Indra then offered Garuda a boon. Remembering the deception of the snakes, Garuda asked, "Then henceforth let snakes become my natural food." Indra granted it. 
 
-"Then be my vehicle, O mighty Garuda," Vishnu requested. And so it was. 
-
-As Garuda continued his flight, an angry Indra hurled his thunderbolt at him. The weapon struck Garuda, but it did not harm him. However, out of respect for the divine weapon, Garuda shed a single feather. 
-
-Indra was amazed by Garuda's invincibility. "O greatest of birds, I want your eternal friendship," Indra offered. 
-
-Garuda accepted. "I cannot return the nectar," he told Indra, "But I can help you retrieve it. I will place it on Kusha grass for the snakes. When they go for their ablutions before tasting it, you can take it away." Garuda also asked for the snakes to become his natural food, which Indra granted. 
-
-Garuda returned to the snakes. "Here is Amrit for you. I will place it on this Kusha grass while you go for your ablutions before tasting it," he announced. "Let my mother become free from this moment." 
-
-"Your mother is free," the snakes agreed, slithering away to purify themselves. 
-
-As planned, the moment they left, Indra swooped down and took the pot of Amrit back to heaven. 
-
-When the snakes returned and found the nectar gone, they desperately licked the Kusha grass where the pot had been placed, hoping for a few drops. The sharp grass split their tongues in two. And that is why, to this day, all snakes have forked tongues.
+Garuda flew home to the Nagas. "Here is Amrit for you," he declared, placing the pot on some Kusha grass. "I will place it here while you go for your ablutions before tasting it. Let my mother become free from this moment."
+The Nagas agreed. "Your mother is free. We will soon be back."
+As soon as the snakes left for their ritualistic bath, Indra swooped down and took the pot of Amrit away, just as Garuda had planned. Vinata was free, and the deceptive Nagas were denied immortality.

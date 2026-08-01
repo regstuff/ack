@@ -1,75 +1,45 @@
-# Indra and Vritra
+# Indra and Vritra: The Demon Who Terrorised the Gods
 
-Indra, King of the Devas, ruled heaven. His guru, Brihaspati, performed sacrifices which gave the Devas divine grace... and invincible victory in their battles with their cousins, the Asuras. 
+Indra, king of the devas, ruled heaven. His guru, Brihaspati, performed sacrifices which gave the devas divine grace and invincible victory in their battles against their cousins, the asuras. 
 
-"The Asuras won't trouble us again," Indra boasted. 
+One day, Brihaspati came to see Indra. Engrossed in the dance at his court, Indra did not see his guru and remained rudely seated. Insulted by this arrogance, Brihaspati stomped out in a rage. When Indra realised his mistake, he rushed to his guru's house, only to find that Brihaspati had left his realm for good. 
+"My negligence has cost me my guru," Indra lamented. "We are lost without him."
 
-One day Brihaspati came to see Indra. Engrossed in the dance at his court, Indra did not see his guru and remained rudely seated. "His triumphs have made him arrogant!" Brihaspati realized. "I shall not stay where I'm no longer respected." 
+When the news reached the asuras, they were jubilant and immediately invaded heaven. Without their guru's spiritual guidance, the devas could not drive them back and were defeated. Indra sought Brahma's advice, who told him to seek the spiritual guidance of Vishwarupa, the three-headed son of Sage Twashta. Although Vishwarupa's mother was related to the asuras, Indra pleaded with him to become their guru. Vishwarupa agreed and went to heaven to perform sacrifices. 
 
-As he stomped out in a rage, Indra suddenly noticed him. "It's my guru! When did he come? Alas! I've unwittingly offended him!" To appease the guru, Indra rushed to his house. But it was one of Brihaspati's disciples who received him. 
+Reinforced by Vishwarupa's spiritual power, the devas invaded the kingdom of the asuras, inflicted a crushing defeat, and returned in triumph. 
+However, Vishwarupa felt conflicted. "The asuras are my mother's relatives," he thought. "I shall strive for the good of the asuras too." 
 
-"Where is my guru?" Indra asked. 
+A few days later, the asuras attacked heaven again. This time, the devas repelled the attack, but with much difficulty. The battles proved indecisive. 
+A worried Indra asked Vishwarupa to pray for their absolute victory. Vishwarupa performed a grand sacrifice, but during the ritual, Indra noticed the guru muttering a secret prayer. 
+"May this offering of ghee make the devas powerful," Vishwarupa chanted loudly, but then poured the remaining ghee while whispering, "...and may this offering fill the asuras with strength."
 
-"My lord, he has left your realm for good," the disciple replied. 
+Realising Vishwarupa was secretly helping the asuras, Indra stood up in a fury. "So that is the secret of their strength! Traitor!" he cried, and drew his sword, cutting off Vishwarupa's three heads. 
+The heads transformed into a chataka bird, a sparrow, and a pheasant, soaring into the air. Indra immediately regretted his rash act, shuddering at the consequences. 
 
-"My negligence has cost me my guru. We are lost without him," Indra despaired. 
+Meanwhile, Sage Twashta divined his son's murder. Deeply grieved and angry, he performed a powerful yagna to create an avenger. From the sacrificial fire emerged a colossal, terrifying asura. 
+"You are Vritra," Twashta commanded. "Go forth and kill Indra."
 
-When the news reached them, the Asuras were jubilant. "Now is the time to attack the Devas!" they cheered. "On to heaven!" 
+Vritra grew rapidly, bridging earth and heaven. When he neared heaven, the devas rained weapons upon him, but Vritra simply opened his huge mouth and swallowed them all. The terrified devas fled from heaven. 
 
-The Asuras invaded heaven. This time the Devas could not drive them back. Defeated in the battle, Indra sought Brahma's advice. "What you lack is the spiritual guidance of a guru. Go and seek the help of Vishwarupa, the son of Sage Twashta," Brahma advised. 
+Indra prayed to Lord Vishnu for aid. Vishnu appeared and revealed that Vritra was invincible to all ordinary weapons. "No weapon can harm Vritra... except a weapon made of the bones of Sage Dadhichi, whose austerities match those of Twashta," Vishnu declared. 
 
-Indra called on the three-headed Vishwarupa. "O son of Twashta, we beg you to become our guru and pray for our prosperity." 
+The devas were dismayed, wondering who would give up their life for them. The Ashwins, the celestial twin physicians, assured them that Dadhichi would gladly lay down his life for a righteous cause. They recalled how Dadhichi had once bravely defied Indra himself to share secret knowledge with them, proving his selflessness. 
 
-"When the very Devas whom I seek to propitiate ask me to be their guru, would I refuse?" Vishwarupa agreed, though his mother was related to the Asuras. 
+The devas went to Dadhichi's hermitage and begged for his bones. Dadhichi, a true ascetic, readily agreed. "I know this body to be gross and perishable," he said. "If it can be of some use, I will feel rewarded. Take my bones by all means." He sat in meditation, and his soul merged with Lord Vishnu, leaving behind his lifeless body. 
 
-Indra took Vishwarupa to heaven, where the three-headed guru performed sacrifices. Reinforced by the spiritual power of Vishwarupa, the Devas invaded the kingdom of the Asuras and inflicted a crushing defeat on them. 
+Vishwakarma, the celestial architect, took Dadhichi's bones and forged the deadliest of weapons: the Vajra (thunderbolt). 
 
-Indra called on Vishwarupa. "Thanks to your spiritual leadership, we have defeated the Asuras." 
+Armed with the Vajra and mounted on his great elephant Airavata, Indra led the devas against the asuras on the banks of the river Narmada. The devas quickly exhausted the asuras' weapons and blew apart the mountain peaks they hurled. The asuras fled, leaving Vritra to face Indra. 
 
-"I am glad. And yet... the Asuras are my mother's relatives. What should I do?" Vishwarupa thought to himself. "I know. Henceforth I shall strive for the good of the Asuras too." 
+"Why do you run after cowards?" Vritra taunted Indra. "I'll give you battle!" 
+Indra hurled a weapon, but Vritra caught it and struck Airavata, making the elephant run amuck. Vritra then aimed his terrible trident at Indra. Indra raised the Vajra, shattering the trident and severing one of Vritra's arms. 
 
-Meanwhile, Indra conferred with the other Devas. "The battle with the Asuras proved indecisive. What could the secret of their renewed strength be?" 
+Enraged, Vritra struck Indra with a massive bludgeon, knocking the Vajra from his hands. Disarmed and discouraged, Indra hesitated. 
+But Vritra, showing immense chivalry, urged him on. "Our combat is like a game of dice. The outcome is not known to us. Fight, Indra, fight!" 
 
-"I shall perform a sacrifice for your success... and for the success of the Asuras too," Vishwarupa mumbled during a ritual. 
+Picking up the Vajra, Indra struck again, severing Vritra's other arm. The devas cheered, thinking the armless asura was finished. 
+But Vritra roared, "If I am as good as dead, so shall Indra be!" He opened his massive mouth and drew a deep breath. The powerful suction drew Indra and his elephant Airavata right into Vritra's mouth and down his gullet! 
 
-All the Devas assembled to watch the sacred ritual. "May the offering of these grains make the Devas stronger," Vishwarupa chanted. Indra, who was seated near Vishwarupa, suddenly became suspicious. "The guru seems to be uttering a prayer in a low tone. For whom is that prayer? Why hasn't he poured all of it?" 
-
-"And may this offering fill the Asuras with strength," Vishwarupa whispered silently. 
-
-"So that is the secret of their strength! Traitor!" Indra realized. He drew out his sword and cut off Vishwarupa's heads. 
-
-As the guru fell, one of his heads took the form of a chataka bird, another of a sparrow, and the third of a pheasant. All three soared high in the air. 
-
-"It was rash. Yet I had to kill him. I shudder to think of what the future holds for me and my subjects," Indra sighed. 
-
-When he divined the fate that had befallen his son, Sage Twashta was ominously disturbed. "I feel uneasy. Has my son come to harm? I shall beget another son to avenge the killing of Vishwarupa," he vowed. 
-
-Twashta performed a sacrifice and created a massive, terrifying Asura from the fire. "You are Vritra. Go forth and kill Indra." 
-
-When Indra heard of Vritra, he prepared to meet the challenge. Vritra stood up, bridging earth and heaven. The Devas rained a shower of arrows and spears on him, but the great Asura opened his huge mouth and swallowed them. The Devas fled from heaven. 
-
-"Come back, O Devas. Won't you give me battle?" Vritra mocked. 
-
-Seething with anger, Indra hurled his trident at Vritra. Vritra caught it with his left hand and struck Indra's mount, Airavata, with it. 
-
-Indra hurled his vajra with all his might, but Vritra aimed his terrible trident at Indra and shattered it. Enraged, Vritra fell upon Indra and struck him with a massive bludgeon. 
-
-"I've lost my weapon. How can I continue the fight?" Indra despaired. 
-
-"I lose an arm and I still fight. You miss a mere weapon and would flee? Our combat is like a game of dice. The outcome is not known to us. Fight, Indra, fight!" Vritra roared. 
-
-Picking up his broken vajra, Indra smiled at Vritra. "O Vritra, it is a pleasure to fight with one as valorous as you. Here comes my vajra!" 
-
-As Indra's vajra struck, it severed one of Vritra's arms. But the mighty Asura opened his mouth, drew a deep breath, and swallowed Indra whole! 
-
-"Indra is finished!" the Devas cried. "Vritra roared with anger." 
-
-To his surprise, Indra found himself being drawn towards the Asura. Along with Airavata, he fell into the mouth of the Asura, went down his gullet... 
-
-Inside, he cut open Vritra's abdomen with his vajra... and came out. 
-
-"Indra is back! But the evil Asura is still alive!" the Devas cheered. 
-
-Indra hurled his vajra with all his might at Vritra... and this time the vajra found its mark, beheading the great demon. 
-
-"I salute you, Vritra. You died a glorious death," Indra said, paying his respects to a valiant foe.
+Trapped inside the demon's stomach, Indra realised Vritra had invited his own death. He used the Vajra to cut open Vritra's abdomen and emerged victorious. Indra then hurled the Vajra with all his might, dealing the final, fatal blow to the great asura. 
+"I salute you, Vritra," Indra declared. "You died a glorious death."

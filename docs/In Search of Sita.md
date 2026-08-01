@@ -1,69 +1,50 @@
 # In Search of Sita
 
-In their search for Sita, Ram and Lakshman reached the shores of Lake Pampa. "Look, Lakshman! That must be the Rishyamuk mountain," Ram observed. "Yes! We will find Sugreev, the monkey chief, there." 
+In their desperate search for Sita, who had been abducted by the demon king Ravan, Ram and Lakshman reached the shores of Lake Pampa near the Rishyamuk mountain. There lived Sugreev, the exiled monkey chief. Seeing the two armed warriors approach, Sugreev grew suspicious and sent his wise minister, Hanuman, disguised as a Brahmin student, to find out who they were. 
 
-From his hidden abode upon the hill, Sugreev saw the two brothers approaching. "Look at those two men coming in this direction. They look very purposeful and strong. I'll find out who they are!" Sugreev summoned his minister, Hanuman. "Go disguised as a Brahmin student and make discreet enquiry." 
+When Ram introduced himself, Hanuman instantly recognised the Lord, fell at his feet, and resumed his true, giant monkey form. "Forgive my ignorance," he pleaded. Ram embraced him warmly. Hanuman then carried the brothers on his back to Sugreev. 
 
-Hanuman disguised himself and approached the visitors respectfully. "Who are you two heroes, one dark and the other fair? Why are you roaming in the forest in the guise of Kshatriyas?" 
+Sugreev received them with reverence. Hanuman explained that Ram was searching for his wife, and Sugreev needed an ally to defeat his brother Vali, who had usurped his throne and taken his wife. The two formed a firm alliance with fire as their witness. Sugreev showed Ram a piece of clothing and some ornaments that Sita had dropped while being carried away in Ravan's flying chariot. Ram recognised them instantly and was overcome with grief, but Sugreev assured him they would find her. 
 
-When Hanuman heard that they were Ram and Lakshman, searching for Sita, he recognized Ram and fell to his feet. "Forgive me, I am dull and ignorant not to have recognised you." 
+Sugreev then told his story. His mighty brother Vali, the King of Kishkindha, had chased a demon named Mayavi into a deep cave. Vali told Sugreev to wait outside and if blood flowed out, it meant he was dead. Sugreev waited for a month. When blood finally flowed out accompanied by a terrible roar, Sugreev assumed Vali was dead. He blocked the cave entrance with a boulder to trap the demon and returned to the city, where he was crowned king. 
+But Vali had killed the demon and survived. He returned, furious, believing Sugreev had betrayed him. He drove Sugreev out and took his wife. "I am forced to live in hiding on this hill," Sugreev explained, "because a sage's curse prevents Vali from coming here."
 
-Ram lifted Hanuman to his feet and clasped him in a warm embrace. Hanuman, thrilled, resumed his original monkey form. "My lord, on the summit of this hill lives Sugreev. He can help in the search for Sita by going in different directions." 
+Ram promised to kill Vali. To prove his strength, Ram shot a single arrow that pierced through seven stout palm trees. Convinced, Sugreev went to the gates of Kishkindha and challenged Vali to a fight. 
+Vali rushed out, ignoring the warnings of his wise wife Tara. The two brothers fought fiercely. Because they looked so similar, Ram could not shoot his arrow for fear of hitting Sugreev. Sugreev was badly beaten and fled back to the mountain. 
+Ram then put a garland around Sugreev's neck to identify him and sent him back to fight. This time, as they grappled, Ram fired a well-aimed arrow that struck Vali in the heart. 
 
-Hanuman carried the two brothers on his massive back up the hill to Sugreev. Ram and Sugreev embraced each other warmly, making a firm alliance of friendship. "I saw Sita being carried away, weeping copiously..." Sugreev recalled, and he showed Ram the ornaments Sita had dropped. 
+As Vali lay dying, he questioned the righteousness of Ram's action, but Ram explained that punishing a man who steals his brother's wife is just. Realising his mistake, Vali asked Ram to protect his son, Angad. After Vali's death, Sugreev was crowned King of Kishkindha, and Angad became the Crown Prince. 
 
-"She cried out for you and then when she saw us, threw a garment down," Sugreev added. Ram pressed the cloth to his bosom, lost in thought. "My dear one! My sweet Sita. I miss you so!" 
+Since the rainy season had begun, Ram and Lakshman spent the next four months in a cave. When autumn arrived, Ram noticed that Sugreev, engrossed in the pleasures of his reclaimed kingdom, had seemingly forgotten his promise to help search for Sita. An angry Lakshman went to Kishkindha to threaten him. Realising his grave error, a repentant Sugreev immediately summoned his massive monkey army. 
 
-Sugreev then shared his own tale of woe—how his brother Vali had misunderstood him, usurped his throne, and taken his wife. Ram pledged to help Sugreev. 
+He divided the army into four groups and sent them in all directions with strict orders to return with news of Sita within a month. The group heading south was led by Angad and included the wisest and strongest warriors: Hanuman and Jambavan. Ram gave his signet ring to Hanuman to show Sita as proof. 
 
-Ram slew Vali, and Sugreev was crowned king of Kishkindha. However, as the rainy season began, the search for Sita had to be postponed. Ram and Lakshman set up home on the Pravarshan hills, while Sugreev enjoyed his reclaimed kingdom. 
+The southern search party scoured dense forests and barren lands but found nothing. Thirsty and exhausted, they followed some birds into a dark cavern. Inside, they miraculously found a beautiful, luminous garden and a lake. An ascetic woman meditating there offered them food and then used her powers to instantly transport them to the shores of the southern ocean. 
 
-Months passed. The rains ended, and autumn arrived. Ram grew worried and impatient. "I hope she is alive! Now look at Sugreev! He has got his kingdom and treasury, comfort and family, he has quite forgotten me," Ram lamented. "How dare he do so? With this bow that caused Vali's death, I will kill his foolish brother too," Lakshman said furiously. 
+Realising their allotted month was almost over and they had failed, the monkeys sat on the beach, dejected, preferring to starve to death rather than face Sugreev's wrath. Just then, a giant, featherless vulture named Sampati emerged from a nearby cave. 
+"God has sent me a fine feast!" Sampati croaked. 
+Hearing this, Angad lamented, "Glory to Jatayu! He nobly laid down his life trying to save Sita from Ravan."
+The mention of Jatayu stopped Sampati. "He was my younger brother! What happened to him?" 
+When Angad told him the tragic story, Sampati wept. He explained that long ago, he and Jatayu had flown too close to the sun. To protect his younger brother, Sampati shielded Jatayu with his own wings, which were burnt to ashes. He had fallen to the earth and had been trapped there ever since. A sage had prophesied that his wings would grow back when he helped the messengers of Lord Ram. 
 
-Lakshman stormed into Kishkindha. Seeing him, a terrified Sugreev apologised profusely. "Pleasure and enjoyment are so addictive that I forgot my promise. Forgive me if you can," he begged. At one word of command from Sugreev, a massive army of monkeys was formed and sent in all directions to find Sita. 
+Suddenly, new, magnificent wings sprouted from Sampati's back! "The sage's prophecy has come true!" he rejoiced. Using his incredible vulture's vision, he looked across the vast ocean. "I see her! She is in Lanka, the kingdom of Ravan, sitting sorrowfully in a grove of Ashok trees on the Trikut mountain. It is a distance of one hundred yojanas (eight hundred miles)."
 
-Hanuman, Angad, Nal, and Jambavan headed south. After days of searching without food or water, they reached the southern ocean. Exhausted and losing hope, they sat on the beach, steep in sorrow. "If we go back without news, Sugreev will kill us. It's death in any case!" Angad sighed. 
+The monkeys were overjoyed but then realised they had an impossible task. "Who can jump across such a vast ocean?" they wondered. 
+Jambavan turned to a quiet Hanuman. "Why are you silent, Hanuman? You are the son of the Wind God, with limitless strength!" Reminded of his true power, Hanuman began to grow in size until he was as tall as a mountain. "I can cross this salty sea easily!" he roared. 
 
-Their loud comments attracted the attention of Sampati, an old, flightless vulture. "I'll eat them all up! I haven't had a good meal for so many days," the vulture thought. But when Angad mentioned Jatayu's noble sacrifice for Ram, Sampati stopped. 
+With a mighty leap, Hanuman took to the skies, flying like an arrow. Along the way, the sea god offered him rest on the Mainak mountain, but Hanuman politely declined. Surasa, the mother of serpents, tested his wit by blocking his path and threatening to eat him. She opened her mouth wider and wider, but Hanuman quickly shrank to the size of a thumb, darted into her mouth, and slipped out again. Impressed by his intelligence, she blessed him. He then killed a demoness who tried to pull him down by catching his shadow. 
 
-"What happened to Jatayu?" Sampati asked, revealing he was Jatayu's elder brother. Upon hearing the tale, Sampati wanted to help. "I have the long range vision of a vulture! I can see that. On the Trikut mountain is Lanka, the kingdom of Ravan. There, in a grove of Ashok trees, is Sita steeped in sorrow." 
+Finally, Hanuman reached the shores of Lanka. He shrank to the size of a mosquito and waited until nightfall to enter the heavily guarded golden city. The demoness Lankini, who guarded the gates, spotted him and struck him. Hanuman dealt her a powerful blow that knocked her to the ground. Spitting blood, she realised that the prophecy of Lanka's doom at the hands of a monkey was beginning to unfold, and she let him pass. 
 
-As he spoke, Sampati's burnt wings miraculously sprouted and grew back, a blessing for helping Ram's cause. 
+Hanuman searched the magnificent palaces and even saw the sleeping Ravan, but could not find Sita. He then noticed a simple house with a Tulsi plant and the symbols of Ram's bow and arrow painted on the wall. It was the home of Vibheeshan, Ravan's righteous brother. Hanuman disguised himself as a Brahmin and met Vibheeshan, who was overjoyed to meet a devotee of Ram. Vibheeshan told him that Sita was kept in the Ashok Vatika (Ashok grove). 
 
-Now the monkeys faced the ocean. "I am old now and not as strong as I was. In my younger days, I could do the impossible!" Jambavan lamented. Angad was unsure if he could make it back. 
+Hanuman went to the grove and hid in the branches of a large tree. Below, he saw the sorrowful Sita surrounded by fierce demonesses. Soon, Ravan arrived and tried to threaten and cajole Sita into marrying him, giving her a month to decide before he would execute her. Sita scorned him, placing a blade of grass between them to signify how little she valued him. Furious, Ravan left. 
 
-"Why are you silent, Hanuman?" Jambavan asked. "You are brave, strong and swift like your father, the Wind God. You are a veritable storehouse of intelligence, discretion and knowledge." 
+When the demoness guards fell asleep, Hanuman gently dropped Ram's signet ring into Sita's lap. Overjoyed, Sita looked up. Hanuman appeared before her in a small form, sang the praises of Ram, and told her that an army of monkeys would soon cross the ocean to rescue her. He offered to carry her back immediately, but Sita refused, saying it was Ram's duty to defeat Ravan and rescue her himself. She gave Hanuman her hair ornament (Chudamani) as a token for Ram. 
 
-Encouraged by their praise, Hanuman began to grow in size until he was as tall as a mountain. "I can cross this salty sea easily! It's child's play for me," he roared, and leapt across the ocean. 
+Before leaving, Hanuman decided to test the enemy's strength. He began destroying the beautiful Ashok grove and eating its fruits. Ravan sent his guards, then his son Akshay, to capture the monkey, but Hanuman killed them all. Finally, Ravan sent his mighty son Meghnad (Indrajit), who used the supreme Brahmastr weapon to bind Hanuman. Out of respect for the weapon, Hanuman allowed himself to be captured and taken to Ravan's court. 
 
-On his flight, he met the Mainak mountain and the serpent mother Surasa, who tested him. Hanuman used his wit to pass them and flew on, finally reaching Lanka. 
+There, Hanuman bravely advised Ravan to return Sita and beg for Ram's forgiveness. Furious, Ravan ordered Hanuman's tail to be set on fire. The demons wrapped his tail in oil-soaked rags, but Hanuman used his magic to make his tail grow longer and longer, exhausting all the cloth and oil in the city. When they finally lit the fire, Hanuman shrank, slipped out of his bonds, and bounded across the rooftops. With his blazing tail, he set the entire golden city of Lanka on fire, sparing only the house of Vibheeshan. 
 
-Hanuman assumed a tiny form, as small as a mosquito, and entered Lanka at night. The demoness Lankini guarded the gate, but with a mighty blow, Hanuman toppled her over. 
-
-Exploring the city, Hanuman saw a house with symbols of Ram painted on the wall and a Tulsi plant in the courtyard. It was the house of Vibheeshan, Ravan's brother, who was a devotee of Ram. 
-
-Vibheeshan told Hanuman about Sita. "She sits forlorn under a big tree in the lovely Ashok Vatika, surrounded by demonesses." 
-
-Hanuman found the Ashok grove and hid in the branches of the tree above Sita. Soon, Ravan arrived, trying to entice Sita. "O fair-faced one! All these queens, including Mandodari, will become your handmaidens if you consent to marry me!" Ravan cajoled and threatened. 
-
-Sita plucked a blade of grass and held it before her. "Can the light of a firefly make a lotus bloom? Have you no fear of the arrows of my Lord Ram?" she retorted. 
-
-Furious, Ravan gave her a month's time to submit or face death. After Ravan left, Hanuman dropped Ram's signet ring into Sita's lap. 
-
-Sita recognized the ring at once. Hanuman appeared before her and narrated the story of Ram. To reassure her, he showed his mammoth form, then shrank back to a tiny monkey. 
-
-Hanuman conveyed Ram's message and took a jewel from Sita to show Ram as proof of his visit. 
-
-Before leaving, Hanuman decided to teach the demons a lesson. He ravaged the royal orchards and fought off Ravan's guards. Ravan sent his son Akshay, whom Hanuman killed. Then came Meghnad, who captured Hanuman using the divine Brahmastra. 
-
-In Ravan's court, Hanuman boldly advised Ravan to beg Ram's forgiveness. Enraged, Ravan ordered Hanuman's tail to be set on fire. 
-
-Wrapping his tail in oil-soaked rags, the demons set it ablaze. But Hanuman shrank his body, slipped out of his bonds, and sprang from place to place, setting the entire city of Lanka on fire! Only Vibheeshan's house was left untouched. 
-
-After burning the city, Hanuman extinguished his tail in the sea, bid farewell to Sita, and leapt back across the ocean to his friends. 
-
-With a mighty roar, Hanuman returned. "He looks radiant! He must have found Sita," the monkeys cheered. 
-
-Hanuman presented the Chudamani (jewel) to Ram. Ram clasped it to his heart, deeply moved. Hanuman recounted all he had seen in Lanka and urged an immediate attack. 
-
-"Glory to Ram! The Lord of Kosala!" the monkey army cheered. At the head of the enormous horde, Ram, strong and brave, led his army towards the sea for the ultimate victory of good over evil.
+After burning the city, Hanuman dipped his tail in the ocean to extinguish the flames. He took leave of Sita and leapt back across the ocean with a triumphant roar. The monkey army cheered his return, and together they journeyed back to Kishkindha. 
+When Hanuman handed the Chudamani to Ram and recounted his adventures, Ram embraced him with tears of joy. With Sita's location finally known, Ram gathered the massive monkey army and began the march south towards the ocean, ready to wage war on Lanka.

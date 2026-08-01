@@ -1,77 +1,97 @@
-# Dhola And Maru
+# Dhola and Maru
 
-In the desert kingdom of Pugal, Princess Maru often woke up from the same vivid dream. "How handsome he looked! And the tenderness in his eyes..." she would sigh. 
+The ballad of Dhola and Maru was composed in 1620 by Kallol, a poet who lived in the reign of Raval Hariraj of Jaisalmer, in Dingal, the language used by ancient bards of Rajasthan. 
 
-Her friends would gather around her, amused but concerned. "But Maru, you and Dhola were married when you were only one and a half and he three! And you haven't seen him since. How can you love him?" 
+Princess Maru of Pugal often had a recurring dream of a handsome young man. "It was he again that I saw. How handsome he looked! And the tenderness in his eyes..."
+"But, Maru, you and Dhola were married when you were only one and a half and he three!" her friend gently chided her. "And you haven't seen him since. How can you love him?"
+"Although I have not seen him since... my heart remembers him every moment. It is not prepared to forget him," Maru insisted. 
+"Dear, dear Maru! Dhola will surely send for you. He must."
 
-Maru would shake her head softly. "Although I have not seen him since... my heart remembers him every moment. It is not prepared to forget him." Desperate for news of her husband, she would plead with the birds and the wind to carry her messages to the kingdom of Narwar, but to no avail.
+Just then, a bird called, *Peea-a... peea-aao* (a bird call that sounds like 'come my beloved'). 
+"O bird! If sing you must... sing to bring my beloved to me," Maru wept. "Dear birds, lend me your wings so that I may fly to my love."
+"No, Maru. We cannot lend you our wings," the birds chirped. "But you can write to your beloved on them. We'll carry your message to him."
+"That wouldn't do. If water fell on your wings the ink would be washed off!" Maru sighed. "Oh, wind, go where my love is! Then come back and touch me."
 
-Meanwhile, Maru's father met with a horse-trader who had journeyed far and wide. "Have your travels ever taken you to Narwar?" the King asked hopefully. "It's time Prince Dhola sent for my Maru."
+Meanwhile, a horse-trader from whom Maru's father had bought several steeds came to see the King of Pugal. Seeing Maru from afar, he asked, "Sir! That young lady there! Who is she?"
+"My daughter, Maru. Come, let us sit down. Friend trader, you must have journeyed far and wide. Have your travels ever taken you to Narwar?" the King asked. 
+"Why, I have just come from Narwar, Sir!"
+"Have you? For some years now I have been sending messengers to Raja Nal of Narwar, but they have never returned. There's been no news from Nal either. But it's time he sent for my Maru. When still a child, she was married to Prince Dhola of Narwar."
+The trader looked shocked. "Sir! So it is your daughter! I heard rumours at Narwar that there had been an earlier marriage."
+"An earlier marriage? Do... do you mean...?"
+"Yes, Sir. Prince Dhola has... has married again. His bride is Malwani, daughter of the powerful King of Malwa."
 
-The trader hesitated, his face falling. "Yes, sir. Prince Dhola has... has married again. His bride is Malwani, daughter of the powerful King of Malwa." 
+Maru, who was listening nearby, fainted in shock. 
+Later, Maru's mother wept. "Mother, fate has turned her back on me and... and smiled on her," Maru sobbed. 
+The King deduced the truth. "It is all clear now. Malwa is a powerful kingdom. To secure an alliance with Malwa, Nal denied the first marriage."
+"Has Dhola also chosen to disown his first marriage? Or does he not know of it at all?" the Queen asked. 
+"I think he doesn't remember. There is another rumour rife in Narwar. Princess Malwani has been throwing many men into prison. Those men must be the messengers you sent," the King revealed. 
+"But how did she come to know about the first marriage?"
+"She too must have heard the rumours and found them to be true. Then... then why don't we send some bards to Narwar to remind Dhola of Maru?" the King suggested. 
 
-When Maru heard the news, she collapsed in grief. "It can't be true... it can't be true..." she wept bitterly in her mother's arms. 
+When the bards assembled at the palace, the King ordered, "Go, good bards, and enter Narwar by any means. Sing sad songs of love and separation to Dhola. Sing about the bride of his childhood."
+Maru gave them a tearful message. "Tell him that I am like coal, burning for him. Tell him that he can come and remove my ashes. But tell him that though my body will be gone, my soul will remain within him... always."
+"Does he not have paper and ink? Does he not write for laziness, or are messages too highly priced in his country?" a bard sang. "If he does not come, Princess! He will come! When we give him your message, he will fly here."
+"If he doesn't, I will throw myself into the Holi fire," Maru vowed. 
 
-Her father quickly realized what had happened. Narwar had secured a political alliance with Malwa, and the powerful Princess Malwani had made sure that all messengers from Pugal were thrown into prison so Dhola would never remember his childhood bride. 
+One evening, many weeks later, Dhola and Malwani were walking in the palace garden when the bards arrived outside the walls. 
+"Bards? Here in the palace grounds? Shall I send them away?" Malwani asked nervously. 
+"No! Their strumming is tuneful and soothing, Malwani. Let them be," Dhola smiled. He looked up at the sky. "Look! The moon is rising and just one star is out. They are like us, two lovers in the sky."
+Malwani thought darkly, "If... if a third star rose between us... Never! You shall be mine... and mine alone! No messengers from Pugal shall get near you. Not one of them!"
 
-"Then why don't we send some bards to Narwar to remind Dhola of Maru?" a councillor suggested. 
+"It's getting dark. Shall I go in and see to our evening meal?" Malwani excused herself. 
+When Malwani had gone, Dhola relaxed. "How peaceful is the twilight hour!"
+Just then, the bards sang loudly:
+"There once was a child named Dhola... whose father was the King of Narwar. And at Pushkar Lake many years ago... the hand of a baby princess was given unto Prince Dhola. Princess Maru of Pugal was married to Dhola, in that tent many years ago. Now she pines, while he has forgotten... Oh, Dhola, how could you? How could you?"
 
-It was an excellent idea. Maru summoned her most trusted bards. "Go, good bards, and enter Narwar by any means. Sing sad songs of love and separation to Dhola. Sing about the bride of his childhood," she instructed them, tears streaming down her face. "Tell him that I am like coal, burning for him. Tell him that he can come and remove my ashes."
+Dhola was stunned. "Oh God! Is it possible?" He rushed to the bards. "Good sirs, that ballad you were just singing... is it true?"
+"It is true. I was present at the wedding," a bard confirmed. 
+"Tell me about it. I must know. I am Prince Dhola."
+"Yes, we know. It happened at Pushkar Lake fifteen years ago. You were little children then, you and Maru."
 
-The bards travelled to Narwar and found a spot in the palace gardens. They began to strum their instruments and sing. Up in the palace, Princess Malwani heard the music and panicked. "Bards? Here in the palace grounds? Shall I send them away?" she asked Dhola nervously. 
+Much later, Malwani found him. "Dhola, I have been waiting for you to join me. Instead you sit here lost in thought. What is it?"
+Dhola tried to deflect her questions by suggesting he travel to Idar or Gujarat to buy her jewels and fine cloth, but Malwani saw through his excuses. 
+"Why do you suddenly want to leave your beautiful kingdom, your palace and your wife who will give her life for you? I want the truth, Dhola."
+"I... I want to see Princess Maru of Pugal. I was married to her in my childhood."
+"Dhola, Dhola... I have lost you..." Malwani wept. 
+"No, Malwani! I love you. But Maru too is my wife. I must go to her. Don't stop me, Malwani."
 
-"No! Their strumming is tuneful and soothing, Malwani. Let them be," Dhola replied, entranced by the melody. 
+Dhola went to the royal stables. "Which of you here will take me to my bride - Princess Maru of Pugal?"
+A magnificent camel stepped forward. "I will, Prince Dhola. I am strong. I eat good food and drink pure Ganga water. Pleasure and pain are alike to me. I will take you. So, my master, fix the bridle on me. Tie musical bells round my neck and I will take you to Maru whenever you wish."
+Malwani, having followed him, secretly begged the camel, "Noble camel, please take pity on me. Don't carry my Dhola to Maru. Pretend that you are lame..." She offered the camel rich food and sweet-smelling oil. 
+"These are tempting offers. But Princess, I cannot betray my master. I am sorry," the loyal camel refused. 
 
-The next day, as Dhola sat alone, the bards sang their true message. "There once was a child named Dhola... whose father was the King of Narwar, and at Pushkar Lake many years ago... the hand of a baby princess was given unto Prince Dhola."
+Unable to stop him, Malwani resorted to delaying tactics. First she blamed the hot desert winds of summer, then the muddy roads of the monsoon, and then the bitter cold of winter. Dhola finally lost patience. 
+"Malwani, don't you think Maru has waited and pined for me enough?"
+"Then... please... go... but only when I am asleep..." Malwani sobbed. 
+And so, Malwani stayed awake for fifteen nights to keep Dhola by her side, until sheer exhaustion forced her to sleep. 
+Dhola immediately seized the chance and left. 
 
-Hearing this, Dhola clutched his head as the memories flooded back. "Oh God! Is it possible?" He rushed down to the bards. "Tell me about it. I must know. I am Prince Dhola!" 
+"Oh... what was that? Camel bells! Dhola... where is my Dhola? He has gone," Malwani cried when she awoke. "Oh, Maru... is this how it feels... to pine for a beloved?"
+She sent her pet parrot to follow him. The parrot lied to Dhola that Malwani had died of a broken heart, but Dhola remained steadfast, telling the parrot to cremate her with full royal honours. 
+"Dear Prince, what I told you was not true. I know now that nothing can stop you from going to Maru. Forgive me," the parrot confessed. 
 
-The bards confirmed everything. Dhola realized he had another wife waiting for him, pining away in Pugal. He returned to Malwani, distracted and deeply troubled. 
+Meanwhile, Dhola encountered Umar Sumaru, a chieftain who had previously been rejected by Maru. Realizing who Dhola was, the jealous Umar Sumaru lied, "My poor man, you are too late. Maru of Pugal has become old and her hair has turned grey."
+Dhola was heartbroken, but just then, a messenger from Pugal named Bissu arrived. "I know who you are, Prince. Don't believe what that man just told you. At your wedding you were three and Maru was one and a half. She is as youthful as you're."
 
-"Malwani, I want to leave Narwar for a while," Dhola said carefully. "I'll go to Idar and buy some of those famous jewels for you."
+Rejuvenated, Dhola urged his camel forward. "Faster! You are too slow! I must reach Pugal before the lamps are lit."
+"Patience, Prince. Tighten your turban. Keep my bridle loose. I will carry you to Pugal by sundown," the great camel assured him, galloping across the desert with giant strides. 
+And soon, at Pugal, Dhola finally met Maru. 
+"Maru! It is I - Dhola!"
+"How is it, Maru, that your body suddenly glows like gold?" Dhola marvelled. 
+"Frogs that lie almost dead in the summer heat, come out in large numbers when the rains fall. You have come like rain and brought me back to life," she smiled. 
 
-"No, Dhola. I don't want any jewels. I am content with the jewels I have," she replied, sensing something was wrong. 
+Fifteen happy days later, Dhola and Maru set off for Narwar. On the way, they were intercepted by the treacherous Umar Sumaru, who offered them hospitality at his camp, secretly plotting to murder Dhola. 
+A female bard from Pugal recognized Umar Sumaru and secretly warned Maru. Maru quickly pinched her camel, making it stamp and groan. 
+"Oh! That's my camel. Why is he stamping about and groaning? I'll see what's wrong," Dhola said, rushing to the stable. 
+"Dhola, our host was about to kill you. Your camel did everything I told him to. Let's flee from here," Maru warned him. 
 
-"Or I could go to Gujarat to get some of its fine cloth for you," he tried again. 
+They mounted the camel and fled. Umar Sumaru's men gave chase, but the magnificent camel easily outran them. 
+"The gates of Narwar! We're safe," Dhola rejoiced. 
+"Of course, we're safe, Prince Dhola. Did you think I would let you down?" the camel snorted. 
 
-"Equally good cloth is available here, Dhola," she insisted. 
-
-Finally, Dhola sighed and told the truth. "I want to see Princess Maru of Pugal. I was married to her in my childhood." 
-
-Malwani pleaded with him not to go, but Dhola was firm. "Maru too is my wife. I must go to her. Don't stop me, Malwani." 
-
-Dhola went to the royal stables to choose his swiftest camel, but Malwani secretly followed. When Dhola was gone, she begged the camel not to take him. "I will give you good food. I will tie you in the shade of a banyan tree and rub your body with sweet-smelling oil," she offered. 
-
-"These are tempting offers, but princess, I cannot betray my master," the loyal camel refused. 
-
-Knowing she couldn't stop the camel, Malwani resorted to delaying Dhola. First, she warned him of the scorching summer winds. Then, she warned him of the muddy monsoon season. Finally, she warned him of the freezing winter. Months passed, but Dhola's resolve never wavered. 
-
-One night, while Malwani was deep asleep, Dhola silently slipped out, mounted his camel, and rode off into the desert. 
-
-When Malwani woke up and found him gone, she was devastated. Desperate, she sent her pet parrot after him with a false message. The bird caught up to Dhola and cried, "Prince, Prince—come home at once! Malwani just fell unconscious and died!" 
-
-But when Dhola showed no signs of turning back, accepting her supposed fate, the parrot confessed the truth. "Dear Prince, what I told you was not true. I know now that nothing can stop you from going to Maru. Forgive me."
-
-Meanwhile, Umar Sumaru, a cruel chieftain who had once been rejected by Maru, heard of Dhola's journey and plotted to ambush him. When Umar Sumaru spotted Dhola in the desert, he tried to discourage him. "My poor man, you are too late. Maru of Pugal has become old and her hair has turned grey," he lied. 
-
-Dhola ignored the man's taunts, pushed his camel faster, and finally reached the gates of Pugal. 
-
-When Maru saw him, her heart soared. "Maru! It is I—Dhola!" he exclaimed, taking her into his arms. 
-
-"Now, I shall never let you go," she whispered, her years of sorrow finally at an end. 
-
-After fifteen happy days in Pugal, Dhola announced, "I am taking my Maru home."
-
-On their journey back to Narwar, they were intercepted by Umar Sumaru, who offered them a place to rest in his camp. Unsuspecting, Dhola accepted. But that evening, while Dhola was resting, Maru overheard Umar Sumaru ordering his men to kill Dhola and capture her. 
-
-Maru quickly woke Dhola's loyal camel. She woke Dhola and they mounted the beast. "Dhola, our host was about to kill you. Your camel did everything I told him to. Let's flee from here!" she cried. 
-
-They spurred the camel into the desert night. "The sound of camel hooves! They're escaping. Follow them!" Umar Sumaru yelled. "Kill the man, but I want the lady alive. Hurry!" 
-
-But Dhola's loyal camel was incredibly swift. "Faster, my friend! Faster!" Dhola urged. They outran Umar Sumaru's men and finally reached the impenetrable gates of Narwar. "The gates of Narwar! We're safe," Dhola sighed with relief. 
-
-Inside the palace, they were greeted by Malwani. Having realized the error of her selfish ways, she welcomed Maru with open arms. "Oh, Maru! Forgive me..." Malwani cried, embracing her. 
-
-"There is nothing to forgive," Maru smiled warmly. "Let us live together happily." 
-
-Dhola looked at his two queens and smiled. "Where there is love, there can only be happiness." And so, they lived in harmony for the rest of their days.
+At Narwar, Raja Nal apologized to Maru. "Maru, my daughter, can you forgive us for all that has happened?"
+"My father, it was all a trick of fate," Maru replied graciously. 
+She then met Malwani. "Malwani... all this time, it was you who gave Dhola your love, care and devotion. I am grateful to you, my sister."
+"Oh, Maru! Forgive me..." Malwani wept, embracing her. 
+"There is nothing to forgive. Let us live together happily," Maru smiled. 
+"Where there is love there can only be happiness," Dhola rejoiced. "May our children live in such harmony always."

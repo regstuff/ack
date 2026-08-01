@@ -1,51 +1,63 @@
-# Kacha and Devayani
+# Kacha and Devayani: Star-Crossed Lovers
 
-In the days of yore, the Devas and the Asuras were ever struggling for the lordship of the three worlds. Both had wise men to guide them. Brihaspati, the son of Sage Angiras, lived in the abode of Indra, King of the Devas. And Shukracharya, the favourite pupil of Sage Angiras, lived in the capital city of the Asura King, Vrishaparva. 
+In the days of yore, the Devas (gods) and the Asuras (demons) were ever struggling for the lordship of the three worlds. Both sides had immensely wise men to guide them. Brihaspati, the son of Sage Angiras, lived in the abode of Indra, King of the Devas. Meanwhile, Shukracharya, the favorite pupil of Sage Angiras, lived in the capital city of the Asura King, Vrishaparva.
 
-But of the two, Shukracharya alone knew the craft of Sanjivani, the secret of reviving the dead. As long as Shukracharya was with them, the Asuras knew their numbers would never decrease. Those who fell in battle were simply brought back to life to continue the war on the Devas. 
+However, between the two great sages, Shukracharya alone knew the divine craft of *Sanjivani*—the secret of reviving the dead.
+"As long as Shukracharya is with us, our numbers shall never decrease," the Asura King boasted to his cheering men. Whenever Asura warriors fell in battle, Shukracharya simply brought them back to life to continue the war on the Devas. 
 
-The valiant Devas, tired of the unequal struggle, went to the brilliant, handsome youth, Kacha, the son of Brihaspati. "You must go to Shukracharya and learn the craft of Sanjivani. Only then can we vanquish our sworn enemies," they told him. 
+The valiant Devas, tired of this unequal struggle, approached the brilliant and handsome youth Kacha, the son of Brihaspati. 
+"You must go to Shukracharya and learn the craft of *Sanjivani*," the Devas pleaded. "Only then can we vanquish our sworn enemies."
 
-The obedient and dutiful Kacha immediately set out to meet Shukracharya. "I am Kacha, the son of Brihaspati. I wish to become your disciple. I shall obey you and serve you loyally," he humbly presented himself. 
+The obedient and dutiful Kacha immediately set out for the capital city of the Asuras. He humbly presented himself before the great Shukracharya. 
+"I am Kacha, the son of Brihaspati," he announced. "I wish to become your disciple. I shall obey you and serve you loyally."
+Shukracharya, being a true teacher, gave him a warm welcome. "I accept you as my pupil, O worthy Kacha."
 
-"I accept you as my pupil, O worthy Kacha," Shukracharya gave him a warm welcome. He also introduced him to his daughter, Devayani, whom he loved dearly. "Come Devayani, my child. Meet the worthy Kacha." 
+Shukracharya had a beautiful daughter, Devayani, whom he loved dearly. He introduced Kacha to her, explaining that Kacha would live with them until his studies were over. In those days, a pupil lived with his guru's family, serving them with love and devotion in return for his education. 
 
-All learning in those days was handed down by word of mouth. The pupil lived with his guru's family as one of his household. Kacha helped Devayani with her daily chores and tenderly fulfilled her slightest wish. Within a few days of his arrival, Kacha won his way into Devayani's heart. 
+Since Shukracharya was often busy at court or deep in meditation, Kacha spent his time helping Devayani with her daily chores. He drew water for her, picked the most beautiful flowers for her, and tenderly fulfilled her slightest wishes. In his leisure hours, he entertained her with music, song, and dance. 
+"How well he sings!" Devayani thought, her heart swelling with an unfamiliar yearning. "How peaceful is his expression!" 
+Slowly but surely, the handsome Kacha won his way deep into Devayani's heart.
 
-As the years passed, the Asuras became suspicious of Kacha. "It is strange! Why should the son of the learned Brihaspati come to our city and choose Shukracharya for his guru? I sense treachery. The only knowledge Shukracharya has, that Kacha's father has not, is the secret craft of Sanjivani," they deduced. 
+As the years passed, however, the Asuras grew deeply suspicious. "Why should the son of Brihaspati come to our city?" they whispered. "I sense treachery. Kacha is here to steal the secret of *Sanjivani*!"
+Roaring angrily, the Asuras secretly plotted to murder Kacha, knowing that Shukracharya would never allow his pupil to be harmed. 
 
-The Asuras plotted to kill Kacha secretly, knowing their guru would not let his pupil be slain. One day, while Kacha was in the forest tending the cattle, the Asuras fell upon him. They slew him, cut him into pieces, and fed his flesh to their dogs. 
+One day, while Kacha was driving the cattle in the forest, the Asuras ambushed and slew him. They cut his body into pieces and fed his flesh to their dogs.
+When the cattle returned home without Kacha, Devayani was frantic with worry. "If he is dead, I do not want to live anymore," she wept to her father.
+"Do not weep, my child," Shukracharya comforted her. Using his secret knowledge of *Sanjivani*, he closed his eyes and chanted the mantra. Miraculously, Kacha materialized before Devayani, completely restored.
 
-That evening, the cattle returned home without Kacha. "It is late! The cattle have not returned and neither has he. If he is dead, I do not want to live any more," Devayani wept. 
+Sometime later, Devayani asked Kacha to venture deep into the forest to fetch some rare, blooming flowers. Kacha could not refuse her. The Asuras, who had been waiting for an opportunity, waylaid him again and slew him. This time, they pounded his carcass into a paste and dissolved it in the waters of the ocean.
+Once again, when Kacha did not return, a distraught Devayani begged her father for help. Shukracharya used his magic, and Kacha was pulled back from the ocean's depths, alive once more. 
 
-"Do not weep, my child. Will not your father use his secret for his own daughter's happiness?" Shukracharya comforted her. He closed his eyes, used his Sanjivani knowledge, and lo! Kacha stood before Devayani. 
+The Asuras were at their wit's end. "How can we kill Kacha if Shukracharya keeps bringing him back to life?" 
+Finally, they devised a wicked, foolproof plan. They attacked Kacha, killed him, and cremated his body. They carefully collected his ashes and mixed them into a goblet of fine wine. 
+A greying Asura presented the poisoned wine to Shukracharya as a "humble gift in gratitude." Shukracharya, who had a weakness for wine, emptied the goblet in one gulp. 
 
-"The Asuras killed me! I do not know how I came back to life but here I am," Kacha explained. 
+When evening fell and Kacha did not return, Devayani was inconsolable. "Without Kacha, I am as good as dead," she sobbed. "Please bring him back to life."
+Shukracharya, weary of the constant resurrections, tried to reason with her. "What good will it serve? The Asuras are bent upon killing him. You are young and beautiful; you have your life to live."
+But Devayani refused to eat or drink, declaring she would die of sorrow. 
 
-Kacha continued living in the home of his guru. One day, Devayani asked him to gather some rare flowers from deep in the forest. The Asuras were waiting for just such an opportunity. They waylaid him and slew him again. "This time they carried his body to a lonely spot... We shall pound his carcass into paste and dissolve it in the waters of the ocean." 
+Unable to bear his daughter's grief, Shukracharya finally invoked the *Sanjivani* mantra. To his absolute horror, a voice answered him from *inside* his own stomach! 
+"The Asuras killed me," Kacha's voice echoed, "but I do not know how I happen to be inside your stomach."
 
-When Kacha didn't return, Devayani pleaded with her father again. Once again, Shukracharya used his secret knowledge to recall Kacha from the dead. 
+Shukracharya cursed himself for his foolishness and swore that wine would henceforth be forbidden for anyone engaged in the pursuit of wisdom. But he was in a terrible dilemma. "Kacha can come out only by killing me," he realized.
+"But father, I will not live if either of you dies," Devayani cried. 
 
-The Asuras were at their wit's end. "How can we kill Kacha if Shukracharya keeps bringing him back to life?" At last, they had an idea. They killed Kacha for the third time, cremated his body, collected the ashes, and mixed them into a goblet of wine. 
+Then, the real purpose of Kacha's visit dawned on the wise Shukracharya. "I now see why you came, and truly you have succeeded," the guru sighed. "There is only one way by which both of us can survive to ensure Devayani's happiness. I will have to teach you the craft of *Sanjivani*."
+While Kacha was still inside his stomach, Shukracharya taught him the sacred mantra. Then, Kacha tore his way out, emerging from Shukracharya's mangled, lifeless body. Using his newly acquired knowledge, Kacha immediately brought his guru back to life. 
 
-The greying Asura then took the goblet of wine to Shukracharya as a gift. Shukracharya, who had a weakness for wine, emptied the goblet in one gulp. 
+Shukracharya, pleased with his pupil's wisdom and restraint, confronted the Asuras. "You fools! Kacha now knows my secret craft. You helped him learn it!" he scolded them. "But rest assured, he will continue to live with me, for the faultless Devayani loves him."
 
-When Devayani waited in vain for Kacha once more, she begged her father to revive him. As Shukracharya thought of a way out, he realized the truth. "The Asuras killed me, but I do not know how I happen to be inside your stomach," Kacha's voice echoed from within Shukracharya! 
+But Kacha was only waiting for his formal period of study to end. When the day finally arrived, he went to Shukracharya. "My days of living with my guru are over. I have to return to my people. May I take my leave with your blessing?" The guru gave his blessing, wondering how Devayani would react.
 
-Shukracharya was in a dilemma. "Kacha can come out only by killing me," he told Devayani. 
+Kacha went to Devayani, who was joyfully anticipating his proposal, believing he was now free to become a householder and marry her. 
+But her smiles dissolved into tears when Kacha announced, "Devayani, I have come to take my leave of you. I must return to my people to fulfill my duties."
 
-"But father, I will not live if either of you dies," she cried. 
+Devayani wept bitterly. "Noble Kacha! I loved you, but could not speak out. Don't you remember the happy days we shared? Why will you not take me for your wife?"
+Kacha held her hand tenderly. "Peerless one! I was reborn in your father's stomach. I am therefore your brother. I cannot marry you. I must return."
 
-Shukracharya realized the real purpose of Kacha's visit. "I now see why you came and truly you have succeeded. There is only one way by which both of us can survive to ensure Devayani's happiness. I will have to teach you the craft of Sanjivani," he decided. 
+Devayani, broken-hearted and feeling betrayed, lashed out in grief. "You made use of one who was sinless in her devotion to you! I therefore lay a curse on you. You will never be able to use the craft of *Sanjivani*."
 
-And so Kacha learned the craft from inside Shukracharya's stomach. Then, he emerged from Shukracharya's mangled body. He immediately used the Sanjivani craft to bring his guru back to life. Shukracharya was pleased with his pupil's wisdom but cursed himself for drinking wine. "Henceforth wine shall be forbidden for those engaged in the pursuit of wisdom." 
+"Dearest Devayani, it is wrong of you to curse me," Kacha replied sadly. "For this, no rishi's son will ever marry you. But though I may not use *Sanjivani* myself, I may still teach the craft to others."
 
-With his studies complete, Kacha prepared to leave. Devayani confessed her love. "Now that you are free to marry, will you not take me for your wife?" 
-
-Kacha held her hand tenderly but refused. "Peerless one! I was reborn in your father's stomach. I am therefore your brother. I can't marry you. I must return." 
-
-The broken-hearted Devayani cried out in grief and anger. "You made use of one who was sinless in her devotion to you. I therefore lay a curse on you. You will never be able to use the craft of Sanjivani." 
-
-"Dearest Devayani, it is wrong of you to curse me. For this, no rishi's son will ever marry you. But I may still teach the craft of Sanjivani to others," Kacha replied. 
-
-Then Kacha departed for the abode of Indra, King of the Devas, leaving Devayani behind. With the passage of time, Devayani completely forgot about the existence of Kacha and lived happily with her father and playmates.
+With heavy hearts, the star-crossed lovers parted ways. Kacha departed for the abode of Indra, having secured the secret to save the Devas. 
+Shukracharya gently led his weeping daughter away. With the passage of time, Devayani's broken heart healed, and she lived happily with her father and her playmates, eventually forgetting the painful memory of the handsome Kacha.

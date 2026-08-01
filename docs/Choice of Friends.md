@@ -1,153 +1,184 @@
 # Choice of Friends: Tales from the Hitopadesha
 
-Adapted from Narayana's classic Sanskrit collection *Hitopadesha*, these timeless fables use animal characters to teach invaluable lessons on wisdom, discernment in choosing companions, and the supreme strength of true friendship.
+One day at the break of dawn, a crow perched on a tree near the river Godavari saw a fowler approaching. "O lord! Here comes Yama (The God of Death) in person," the crow thought. "I wonder what he is up to."
 
-### Choice of Friends
+The fowler fixed his net, scattered some rice on the ground, and hid himself in the hollow of a tree. 
 
-At break of dawn, on the banks of the river Godavari, a crow named Laghupatanaka perched upon a high banyan tree. Looking down, he spotted a sinister fowler approaching with a net and a bag of grain. 
-
-"Here comes the hunter, like the god of death himself!" the crow whispered, watching closely. The fowler spread his net upon the grass, scattered rice grains over it, and concealed himself inside a hollow tree.
-
-Shortly after, a flock of wild pigeons led by their king, Chitragriva, flew overhead. Seeing the white rice grains gleaming on the grass, the young pigeons grew eager to land. 
-
-Chitragriva held them back. "Beware! How can rice grains appear in an uninhabited wilderness? I suspect a trap. Greed can lead to doom!"
-
-However, a headstrong young pigeon scoffed, "Must we give up a feast out of vague fears? Fortune favors the bold!"
-
-Overriding their king's wisdom, the flock landed on the grass. The moment they began pecking at the grain, the heavy net snapped tight around them, trapping the entire flock.
-
-As the trapped birds panicked and blamed the young pigeon who had led them astray, King Chitragriva intervened sternly. "Stop carping! It is useless to cast blame in times of crisis. Listen to me: if we all beat our wings in unison at my signal, we can lift this net into the air together!"
-
-At Chitragriva's command, the entire flock flapped their wings simultaneously. To the fowler's utter amazement, the net lifted off the ground, carrying his entire catch into the sky. The fowler ran beneath them waving his arms, but soon gave up in exhaustion and returned home empty-handed.
-
-High above the clouds, Chitragriva guided his flock toward the western forest. "My dear friend Hiranyaka, King of the Mice, lives near the river. He has sharp teeth and will chew through our bonds."
-
-Alighting near Hiranyaka's burrow, Chitragriva called out to his friend. Recognizing the pigeon king's voice, Hiranyaka popped his head out of his hole and gasped at the sight of the net. "My good friend! How did this happen?"
-
-"It is the decree of fate," Chitragriva smiled. "Quick, cut our bonds!"
-
-Hiranyaka immediately ran up to Chitragriva to gnaw his ropes first. But the noble pigeon king stopped him. "No, Hiranyaka! Cut the net around my followers first, and free me last."
-
-"My teeth are small and my strength is limited," Hiranyaka hesitated. "What if my jaws fail before I reach you?"
-
-"A king's duty is to protect those dependent on him, even at the cost of his own life," Chitragriva insisted. 
-
-Moved by Chitragriva's selflessness, Hiranyaka worked tirelessly until every string was severed, setting the entire flock free. Expressing deep gratitude, the pigeons took flight.
-
-Laghupatanaka the crow, who had followed the flock from the Godavari, watched the entire rescue in awe. *What nobility! What a true friend this mouse is!* the crow thought. Swooping down, the crow called out, "O noble mouse, I wish to make friends with you!"
-
-Hiranyaka retreated to his burrow doorway. "That cannot be. You are a crow and I am a mouse. You are my natural predator; we can never be friends."
-
-"I have no desire to eat you," Laghupatanaka assured him. "I have seen your loyalty and honor. If you refuse my friendship, I shall fast unto death at your doorstep."
-
-Touched by the crow's sincerity, Hiranyaka accepted his friendship. From that day on, the mouse and the crow shared food, stories, and deep companionship.
-
-Months passed, and a severe drought struck the region. Finding food scarce, Laghupatanaka told his friend, "I wish to move to the southern forest where my old friend, Manthara the Tortoise, lives near a lake rich in fish and water."
-
-"If you go, I will come with you," Hiranyaka declared. "I cannot imagine life without your company."
-
-Placing the tiny mouse gently on his back, Laghupatanaka flew across the hills until they reached the lush southern lake. Manthara the Tortoise welcomed them warmly, sharing fresh water and fruit.
-
-One afternoon, as the three friends conversed by the water, a panting deer named Chitranga rushed up to them, trembling with fear. "A hunter is pursuing me!" the deer gasped.
-
-"Drink some water and rest in peace," Manthara comforted him. "The hunter will not find you in this thick forest." The four animals quickly bonded, forming an inseparable circle of friends.
-
-A few weeks later, Chitranga failed to return to the lake at dusk. Worried, Laghupatanaka flew high over the forest canopy to search for him. Deep in the woods, he spotted the deer trapped in a heavy rope snare set by a hunter.
-
-Laghupatanaka flew back, picked up Hiranyaka on his back, and rushed to the spot. Hiranyaka immediately set to work gnawing through the thick cords of the snare. 
-
-Meanwhile, back at the lake, slow-moving Manthara grew anxious and ploded through the forest on foot to join them. Just as Hiranyaka severed the last string and freed Chitranga, the hunter walked into the clearing!
-
-Seeing the hunter, the swift deer bolted into the thickets, the crow flew into the trees, and the mouse darted into a hole. But poor Manthara, moving slowly across the grass, was caught by the hunter. 
-
-"Well, the deer escaped, but this fat tortoise will make a fine meal!" the hunter chuckled, binding Manthara to his bow.
-
-Distressed by their friend's capture, the remaining three animals devised a clever rescue plan. Following Hiranyaka's instructions, Chitranga the deer ran ahead and lay down across the hunter's path, stiffening his legs and pretending to be dead. Laghupatanaka perched on the deer's body, pretending to peck at its eyes.
-
-Coming down the path, the hunter spotted the 'dead' deer. "Aha! What luck!" he exclaimed. Dropping the bound tortoise on the grass, the hunter rushed forward with his knife to claim the deer.
-
-The instant the hunter turned his back, Hiranyaka darted out of the grass and gnawed through the cords binding Manthara, allowing the tortoise to slip into a nearby pond. 
-
-As the hunter reached for the deer, Laghupatanaka let out a sharp caw. Instantly, Chitranga leaped to his feet and bounded away into the forest.
-
-Returning empty-handed to the spot where he had left the tortoise, the hunter found only severed ropes. Outwitted by the united animal friends, the hunter picked up his empty bow and walked away in bewilderment.
-
-Reunited by the lake, the four friends celebrated their freedom, proving that true unity and selfless friendship can overcome any danger.
-
----
+A little later, the king of the pigeons and his flock happened to fly past. 
+"Look! Do you see those grains? O king, let us feast on them," a pigeon cried out. 
+The wise King Pigeon was immediately suspicious. "No! I suspect a trap. How did those grains come here in the middle of a forest?" he warned. "Beware! Greed can lead us to doom, as it did the greedy traveller."
+And he told his flock the story of the Tiger and the Traveller. 
 
 ### The Tiger and the Traveller
 
-Deep in a forest, an old tiger, too weak and blind to hunt wild prey, found a discarded gold bangle near a marshy pool. *I can use this shiny bangle as bait to catch a greedy human,* the old predator plotted.
+One day a fierce tiger, who was now too old to hunt, was walking by a marshy pool when he saw a dropped gold bangle. 
+"I may as well pick it up. It could be of some use," he thought. "I've got the bait. Now I must wait for the catch."
 
-Holding the gold bangle in his paw, the tiger sat near the edge of the swamp. Presently, a weary traveler walked down the forest path. 
+Just then, a traveller passed by the opposite bank. The tiger spotted him. "Men are tasty, and men love gold," the tiger grinned. 
+"Hey! You there! Do you want this gold bangle? I have no use for it," the tiger called out. 
 
-"Hey, traveler!" the tiger called out in a soft, gentle voice. "Do you want this pure gold bangle? I am old and have no use for worldly riches."
+"A gold bangle! It's tempting," the traveller thought. "But no. I must not risk my life for it."
+He looked at the tiger suspiciously. "Hm-m-m, I'd love to have the bangle. But how can I trust a fierce beast like you?"
+"You have every reason to suspect me," the tiger lied smoothly. "I have been wicked in my time. But now? On the advice of a holy sanyasi, I am completely changed. So come across and take this."
 
-The traveler stopped, eyeing the golden bangle greedily, but hesitated. "How can I trust a fierce beast like you?"
+The traveller's love of gold overcame his natural fear of the tiger. "He seems to be telling the truth. I will wade across and take it," he decided. 
+"If I come close, you may forget the sanyasi's advice when you smell me," the traveller hesitated. 
+"I won't. Besides I'm old. My claws are blunt. So do not fear. Come, wade across the pool and take this."
 
-The tiger put on a pious expression. "You have every reason to suspect me. In my youth, I committed many sins and killed many animals. But a saintly hermit instructed me in Dharma, and now I lead a holy life. My claws are blunt and my teeth are gone. Come, wade across this shallow pool and take the gold!"
+But hardly had the traveller taken a few steps into the water when he began to sink. "Oh! Oh! It's a mire! I'm stuck in the mud! Help!"
+The tiger waded menacingly up to the trapped traveller. "Ho! Ho! So you are stuck in the mud, I see. Never mind. Wait there. I'll come and help you out."
+"Alas! What a fool I've been. I let greed overcome my reason," the traveller realized with dread, right before the tiger pounced on him and ate him. 
 
-Foolishly allowing his greed for gold to silence his common sense, the traveler stepped into the water to reach the tiger. But after taking a few steps, he sank deep into the thick, inescapable mire of the marsh.
+***
 
-"Oh no! I am stuck in the mud!" the traveler cried out.
+At the end of the story, the majority of the pigeons agreed with their king. But one young pigeon scoffed, "Fool! Fool! O brothers, must we give up a feast for vague fears? Yes, o king! Let us not be scared out of a good meal."
+"Fools! This could be your last meal," the King Pigeon warned. 
+But before the king could stop them, they flew down to the spot. "I cannot desert my subjects. I will go along with them," the loyal king sighed, following them down. 
 
-"Do not worry, my friend," the tiger chuckled, his gentle tone instantly vanishing. "I will come and help you out."
+Hardly had they started pecking at the grain when the trap sprang. "Wh-what!" "A fowler's net!" "Alas! We're trapped."
+They angrily turned upon the pigeon who had suggested that they throw caution to the winds. "Your greed has led us into this. Our king was right. If only we had heeded his words!"
+"Enough of that!" the King Pigeon commanded. "Don't waste time carping. You were ready to share the feast. Now share the blame too. Now let's see how we can free ourselves."
 
-Wading slowly into the mud, the tiger pounced upon the helpless traveler and devoured him. 
+He pondered for a while. Then he said, "Get ready! When I give the signal, all of you take off at the exact same time."
+At that moment the fowler, delighted with his catch, came out of hiding. 
+"Quick! One! Two! Three! Up!" the King Pigeon yelled. 
+With a mighty combined flap of their wings, the entire flock flew up into the sky, carrying the heavy net with them. 
 
----
+"Hey! Stop! My net!" the fowler ran forward waving his arms. But all his waving was of no use. "There goes my net. I may as well return home."
+
+Watching from his tree, the crow was amazed. "Bravo! I'll follow them and see what they do next."
+
+High in the sky, a pigeon asked, "How shall we get rid of this wretched net, o king?"
+"A friend of mine, the king of the mice, lives in the forest near by. We will go to him. He will cut our bonds."
+
+Down in his retreat, when the mouse heard the commotion caused by the descending pigeons, he was alarmed. "Strange sounds! It may be some unknown danger. I'd be safer inside."
+When the pigeon could not see his friend, he called out, "Friend mouse, aren't you going to welcome us?"
+"Why, it's my good old friend!" The mouse rushed out. "I am delighted to see you... But what is this? You seem to be trapped in a net!"
+
+He ran forward and was about to gnaw at the king's strings when the King Pigeon stopped him. "No, my friend. First free my followers."
+"But I am small and my teeth tiny. Suppose my strength fails me before I free you?"
+"It does not matter. My duty is to protect my subjects, at the cost of my life if need be. It is not wise to sacrifice oneself to preserve one's dependants. You will free them first."
+
+The mouse was deeply moved. "Nobly spoken, friend pigeon, nobly spoken. I shall do as you wish."
+The mouse began freeing the other pigeons. Through sheer nobility and love for his friend, he found the strength to hold out and cut every single string. 
+"As soon as you are free, you must let me treat you and your followers to a feast," the mouse smiled. 
+Thanking the mouse profusely, the pigeon king and his flock flew away. 
+
+As the mouse was about to go back to his retreat, the crow flew down to him. "O staunch friend, let me too be your friend," the crow requested. 
+The mouse was amused. "How can that be? I am your natural food. The next thing I know, you will be eating me. We can never be friends."
+"You need have no fear of that. You are too tiny to be even a full breakfast for me," the crow reasoned. 
+But the mouse shook his head. "I cannot trust a natural enemy. Let me tell you the story of the Deer, the Jackal, and the Crow."
 
 ### The Crow, the Deer and the Jackal
 
-In a verdant forest, a deer and a crow lived as devoted friends. One day, a cunning jackal named Kshudrabuddhi spotted the plump deer grazing on tender grass. *What a delicious feast he would make!* the jackal thought. *I must win his trust to trap him.*
+Long, long ago there lived a deer and a crow. They were good friends and loved each other dearly. 
+One day, a hungry jackal saw the plump deer. "What a delicious meal he would make. Mm-m-m!" he drooled. 
+He went up to the deer. "Good day, my friend."
+"Who are you?" the deer asked. 
+"I am a lonely jackal. I have no friends. But now that I have met you, I have one. Will you be my friend?"
+The innocent deer was moved by his words. "Poor jackal. Of course I'll be your friend. Come, let me take you to my friend, the crow."
 
-Approaching the deer with sweet flattery, the jackal offered his friendship. The innocent deer was touched, but when he brought the jackal to meet the crow, the wise bird raised a sharp warning.
+When the crow saw the two together, he was extremely surprised and suspicious. "Who's this?"
+"My friend, the jackal. He is lonely and seeks our friendship."
+"Don't you know that you must think twice before making utter strangers your friends?" the crow scolded. 
+"No! But why?"
+The crow then told him the story of the Vulture, the Cat, and the Birds. 
 
-"Friend Deer," the crow cautioned, "never trust a stranger whose character you do not know! A friend chosen unwisely brings ruin."
+#### The Vulture, the Cat and the Birds
 
-"Do not be suspicious, Sir Crow," the jackal pleaded humbly. "I am lonely and seek only your noble company." Overriding the crow's advice, the deer accepted the jackal into their fold.
+One day a blind, frail old vulture came to live in the hollow of a large tree, where many smaller birds roosted at night. 
+The birds held a hurried conference. "Poor old bird. He can hardly move around. Let us give him a share of our food or else he will soon die of starvation."
+The old vulture was deeply touched by their kindness. "I shall make it my duty to protect their young when they are away gathering food," he vowed. 
 
-A few days later, the jackal led the deer to a farmer's crop field full of sweet, green wheat. As the deer grazed happily every morning, the farmer noticed his ruined crops and set a strong net snare along the fence.
+One day, a wicked cat happened to pass by when the birds were away. "Aha! Nests and nests of little fledglings. Food enough for days and days," he licked his lips. 
+When the little birds saw the cat approach, they set up such a terrified twitter that the old vulture woke up. 
+He swooped down clumsily. "Who goes there? Speak up!"
 
-The next morning, the deer stepped into the snare and was trapped tight. Seeing the jackal waiting in the bushes, the deer called out, "Friend Jackal! Quick, gnaw these net ropes and free me!"
+"A vulture! Oh! Oh! I'm done for!" the cat panicked, but then he noticed the vulture's cloudy eyes. "Oho! The fellow's blind, and his talons blunt with age. What a relief."
+"I am a cat," he answered boldly. 
+"Be off! Or I'll slay you," the vulture threatened. 
+"I am prepared to die if I deserve it. But may I first explain why I am here?" the cunning cat pleaded. 
+"Yes! You may."
+"I live on the banks of the Ganga. The birds there constantly speak of your great wisdom and your learning. I have come to study law from you."
+"Yes. But cats like meat, and there are young birds here. I will have to slay you."
+"O wise bird, would you kill a stranger who comes to you as a devoted disciple? Besides, I know the scriptures and I've completely overcome worldly passion."
+The old vulture was taken in. "He seems to be trustworthy," he thought. "All right. You may live in the hollow with me."
 
-The jackal chuckled to himself, gloating over his impending feast of deer meat. Aloud, he put on a hypocritical face: "Alas, my friend! Today is a sacred fast day, and this net is made of animal sinew. I cannot touch it with my teeth on a holy day. I shall return tomorrow." With that, the jackal retreated to wait for the farmer to kill the deer.
+Day after day, the cat stealthily stole fledglings, devoured them in the hollow, and left the bones there. Each evening when the birds returned home, they found more fledglings missing. "We must investigate the matter," they cried. 
+Realizing his time was up, the cat slunk away as soon as possible. 
 
-At dusk, the crow flew searching for his missing friend and found the deer trapped in the snare. "Ah, the traitorous jackal!" the crow cawed. "I warned you, but do not lose heart. I have a plan!"
+Meanwhile, as the birds flew hither and thither searching, one of them peered into the vulture's hollow. "Tweet! Tweet! See what I've found. Bones! I've got the culprit! The ungrateful wretch. He has repaid our kindness by eating our helpless ones. He must be pecked to death."
+So the furious birds flocked together and ruthlessly pecked to death the poor, innocent vulture—whose only fault was that he blindly trusted a stranger he was barely acquainted with. 
 
-The crow instructed the deer: "When the farmer approaches with his club tomorrow morning, puff up your stomach, stretch out your legs, and lie completely still as if dead. I will sit on your head and pretend to peck at your eyes. The moment I caw aloud, leap up and run!"
+***
 
-At dawn, the farmer arrived with a heavy wooden club. Seeing the deer lying motionless with a crow hovering over it, the farmer smiled. "The fellow is dead of fright! That saves me the trouble." 
+"And that is why one should always be wary of strangers," the crow concluded. 
+But the cunning jackal was not to be talked out of his dinner by such advice. "Sir crow, you seem to forget that on the first day he met you, you too were a stranger to him. And yet your friendship only grows stronger each day."
+The gentle deer did not like scenes. "Come, friend crow, let us all live together in amity and joy."
+"All right. Do as you wish," the crow sighed. 
 
-As the farmer removed the net from the deer's body to carry it away, the crow suddenly let out a sharp caw: *"CR-ROA-K!"*
+So they began living together. In the morning each went in search of his own food and returned late at night. 
+One morning a few days later, when the crow had left, the jackal whispered, "Friend deer, in one corner of this forest there is a field full of sweet grain. Let me show it to you. Come."
+The innocent deer accompanied him and grazed in the field. "This grain is indeed very sweet. I shall come here every day and feed on it."
+"Ha! Ha! And I will soon feed on you," the jackal chuckled to himself. 
 
-Instantly, the deer sprang to his feet and bolted into the forest like wind. 
+One day, as the jackal had hoped, the owner of the field saw the deer. "Aha! So you are the thief who eats my crops. Hm-m-m!"
+He set a strong snare to catch the deer. The next day, the deer stepped into it. "Oh! Oh! Help! I'm trapped. This is the end of me if my friends don't come and rescue me."
+The jackal, who was waiting and watching from the bushes, chuckled. "Ho! Ho! My patience has borne fruit. When the farmer cuts him up, his bones and gristle and blood will give me some delicious dinners!"
 
-Annoyed at being tricked, the furious farmer threw his heavy wooden club after the escaping deer. The flying club missed the deer, but struck the treacherous jackal hiding behind the bushes, killing the sly traitor on the spot.
+The deer caught sight of him. "Quick! Dear friend, you are just in time. Gnaw at this net and free me."
+To his dismay, the jackal refused. "I'm sorry, my friend. This net is made of animal sinews. Since I am strictly fasting today, I cannot bite them. It would be a sin. I'll come and free you tomorrow, to be sure." And he slunk away into the bushes to wait. 
 
----
+When the crow returned home that evening and did not see his friend, he was highly worried. "Where could he be? I hope he is not in danger. I still don't trust that jackal."
+After searching everywhere, he finally came upon the field. "Alas! My poor dear friend. How did this happen?"
+"The jackal... I should have taken your advice," the deer wept. "He is waiting somewhere near by, waiting to taste my flesh. Fly away lest you too fall into danger."
+"No! Dear friend, I shall wait with you till the end. Perhaps I might still save you."
 
-### The Vulture, the Cat and the Birds
+The crow racked his brains all night. At last day broke. "Alas! There comes the farmer with his heavy club. If only I could think of some means to save my friend."
+Suddenly an idea struck him. "I have it! Lie on your back, puff your stomach out, stiffen your legs and be very still. I will sit on you and peck at your eyes. Then when I croak loudly, spring to your feet and run for your life."
 
-On the banks of the Ganga stood a colossal, hollow banyan tree where hundreds of birds built their nests and raised their fledglings. In the dark hollow of the tree trunk lived an old, blind vulture named Jaradgava. Out of pity for his age, the bird community shared a portion of their daily food with him, and in return, the old vulture watched over the tree.
+The deer did exactly as he was told. When the farmer came up to him, he saw the stiff deer and the pecking crow. "Aha! The fellow is dead—of fright no doubt. Well, that makes my task easier."
+He put down his club and began removing the heavy net. As he was busy folding it, the crow yelled, "Croak! Cr-roa-k!"
+The deer instantly sprang up and bounded off into the forest. "Hey! Wait!" the farmer yelled. 
+Furious at having been tricked, he wildly flung his heavy club at the fleeing deer. The club missed the deer, flew into the bushes, and hit the hiding jackal square on the head, killing him on the spot. 
 
-One afternoon, while the parent birds were away searching for food, a sly cat named Dirghakarna crept toward the tree, intending to feast on the helpless fledglings.
+***
 
-Hearing the terrified chirping of the baby birds, the blind vulture stuck his head out of the hollow. "Who goes there?" Jaradgava croaked angrily. "Be off, or I shall strike you down!"
+"And from that, you must learn that a natural enemy can never be trusted," the Mouse finished his story. 
+But the Crow was determined. "Dear mouse, I value your noble friendship immensely. If you refuse it, I will fast unto death at your door!"
+The mouse was deeply touched by the crow's sincere devotion. "Come my friend, let me entertain you with the best of my hoard of food."
+And from that day, the two became the absolute best of friends, sharing their choice pickings of food and daily animal gossip. 
 
-The cat panicked, realizing he could not fight the massive bird. Using his wits, the cat spoke in a soft, pious voice: "Revered sir, I salute your wisdom! I am a pilgrim who has renounced meat and taken vows of non-violence. I have traveled far to study sacred scriptures under your guidance."
+Then one day, the Crow sighed. "O friend mouse, food for me is getting scarce in this forest. Much as I hate to leave you, I would like to move away."
+"Where to?"
+"To a beautiful lake in a distant forest where my old friend, the Tortoise, lives. He will give me fish and other food."
+"If you insist on going, I too will go with you. I can't imagine life without you," the Mouse smiled. 
 
-Flattered by the cat's praises, the old vulture softened. "You are a cat, and cats eat young birds. How can I trust you?"
+So the two friends set off for the forest where the tortoise lived. When the Tortoise saw the crow, he was overjoyed. "What brings you here, my good old friend?"
+"Food was scarce in our forest. And I have brought along my loyal friend, the King of the Mice. He is the most virtuous and kind soul I've ever met."
+"Welcome to our forest, o mouse. There is enough food here for all of us, and more," the Tortoise welcomed him warmly. 
 
-"I have spent years doing penance by the holy river," the cat lied smoothly. "I would never harm a living soul."
+And so the three friends lived happily together. One day, as the tortoise was about to go for a swim in the tank, a beautiful spotted Deer came panting up to them. 
+"What's the matter?" the Tortoise asked. 
+"A hunter! He's right after me."
+"Come friend, refresh yourself with some grass and water. My friends will look after you. I am going for a swim to hide, and shall join you later."
 
-Tricked by his pious words, the vulture allowed the cat to take shelter in the tree trunk. 
+The deer had his repast as they nervously waited for the tortoise. "We must flee from here," the Mouse said. "I took a short cut here. The hunter will soon discover this forest. It's on his route."
+"Then we must leave this forest," the Deer agreed. 
+"Yes, it would be safer," the Crow nodded. 
+"But how will good old tortoise make it across the land fast enough?" the Mouse worried. 
 
-Every night, while the birds slept, the cat quietly slunk up the branches, snatched a few fledglings from their nests, carried them down into the vulture's hollow, and devoured them, leaving the bones scattered inside.
+Suddenly, they heard a cry from the riverbank. "Help! Help!"
+"Alas! Our friend has been caught!" the Crow gasped. The ruthless hunter had picked up the slow tortoise and tied him tightly to his bow. 
+"Don't despair! Quick—we still have a chance to rescue him," the Mouse strategized quickly. "Deer, go and lie across the hunter's path ahead, as if dead. Quick! Friend crow will hover over you and peck at your body. When the hunter sees you, he will put friend tortoise down to claim the bigger prize. And I will secretly gnaw at the binding strings."
 
-After several days, the bird parents noticed their fledglings vanishing. Organizing a search of the tree, they discovered a pile of bird bones scattered around the old vulture's hollow.
+The deer and the crow took their positions. As expected, the hunter soon came walking by. "A deer! It's been a truly good day for me."
+He put the tortoise down on the grass, drew his hunting knife, and ran towards the deer. "Shoo! Shoo!" he yelled at the pecking crow. 
+Meanwhile, the Mouse scurried up. "There! You're free. Quick! Into the water."
+The tortoise silently slipped into the deep lake. 
 
-Assuming that the blind vulture had betrayed their trust and eaten their children, the enraged birds descended upon Jaradgava, pecking the innocent old vulture to death. Meanwhile, the real murderer, the sly cat, quietly slunk away into the forest.
+As the hunter approached with his knife, the Crow croaked, and the Deer sprang up and darted into the woods. 
+"Well, never mind. I still have my tortoise," the confused hunter grumbled, walking back. But when he got back to the spot where he had left the tortoise, he found nothing but chewed strings. "Alas! The fellow has escaped. I deserve it for being so greedy."
 
-*Moral: Exercise extreme caution before inviting strangers into your inner circle of trust.*
+Safe in the woods, the Tortoise smiled. "That was a neat plan, friend mouse. You saved my life."
+"Don't single me out," the Mouse replied humbly. "Each of your friends risked his life to save yours—just like my friend, the King of the Pigeons."

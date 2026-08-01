@@ -1,225 +1,317 @@
-# Birbal the Inimitable
+# The Inimitable Birbal
 
-Raja Birbal, the grand vizier in the court of Mughal Emperor Akbar, was celebrated throughout India for his extraordinary wit, deep wisdom, and uncanny ability to solve complex problems. His sharp intellect turned palace rivalries into laughter and taught timeless lessons in justice.
+## Pandit Gangaram
 
-### Pandit Gangaram
+Birbal had gained the reputation of being a skillful solver of problems. One day, a poor Brahmin named Gangaram came to him. "Birbal sahib, I have a problem which only you can solve."
 
-One day, an uneducated Brahman named Gangaram approached Birbal in distress. "Birbal Sahib, my ancestors were learned Sanskrit scholars known as Pandits. I have neither scholarship nor wealth, but I have one burning wish—I want people to address me as Pandit!"
+"What is it?" Birbal asked. 
 
-Birbal smiled. "I can fulfill your wish in just two days, provided you follow my instructions strictly. For the next two days, whenever anyone calls you 'Pandit', you must shout at them in fury and chase them!"
+"I am a Brahmin by birth," Gangaram explained. "My forefathers were great Sanskrit scholars. Everyone respectfully called them 'Pandits.' I, however, have neither much learning nor wealth."
+"Do you want me to help you get work?" Birbal offered. 
+"No, I am contented with my life. But I have just one wish. I want people to address me as 'Pandit'."
 
-Gangaram was puzzled, but agreed. The next morning, Birbal visited Gangaram's neighborhood in Bara Chowk and met a group of local boys playing in the alley. "Boys," Birbal whispered, "if you want some fun, call that man Gangaram 'Panditji' when he steps out."
+"Is that all? You only want to be called Pandit?" Birbal smiled. 
+"Yes. I know it is difficult to earn that title. But no task is difficult for you."
+"I can do it in just two days," Birbal promised. 
+"You mean everyone will begin to call me Pandit in just two days?" Gangaram asked in disbelief. 
+"Well, maybe three. But you must follow my instructions. For the next two days, whenever anyone calls you 'Pandit', you must shout and yell at them angrily."
 
-As Gangaram walked out with his water pot, a boy shouted, "Panditji!" 
+"Why should I do that? I *like* being called Pandit!" Gangaram protested. 
+"Don't argue. Do as I say," Birbal instructed. 
 
-Remembering Birbal's advice, Gangaram lunged at the boy in anger. "How dare you call me that!" he roared, chasing him down the street. 
+The next day, Birbal went to Gangaram's street, Bara Chowk. He found some small boys playing outside and called one aside. "Do you know Gangaram who lives in that house? He scolded you boys yesterday because you were making a lot of noise. I'll tell you how to get even. Just call him 'Panditji'."
 
-Delighted by his reaction, the rest of the neighborhood boys joined in the game, shouting "Panditji! Oh, Panditji!" as Gangaram chased them with a stick. Soon, teasing Gangaram became a popular pastime in Bara Chowk. 
+Sure enough, as soon as the Brahmin stepped out of his house, the boys yelled, "PANDITJI!"
+Remembering Birbal's words, Gangaram feigned fury and pounced toward the boy. "You... how dare you call me that!" 
+Seeing his angry reaction, the other boys immediately took up the cue. "Panditji! Ohh Panditji!" they teased. Each time they shouted, Gangaram would chase them, brandishing his stick and yelling, "Wait till I catch you!"
 
-After two days, the boys grew tired of the game, but the title stuck. Whenever visitors asked for Gangaram's house, the neighbors proudly pointed: "Don't you know Panditji's house? Right there!" 
+It quickly became a popular pastime in Bara Chowk. Bystanders would tell newcomers, "You want to have some fun? Just call that man 'Panditji'!" 
 
-Thus, Gangaram earned the title he had cherished all his life.
+Soon, however, the boys grew tired of the game because Gangaram stopped chasing and abusing them after the two days were up. The game stopped, but the name stuck permanently. From then on, whenever someone asked for Gangaram's house, the locals would say, "Don't you know Panditji's house? Here it is!"
 
----
+***
 
-### And Curry, of Course
+## And Curry of Course
 
-One morning in the imperial court, Emperor Akbar engaged Birbal in conversation about a wedding feast Birbal had attended the previous evening. "What did you eat at the feast, Birbal?" Akbar asked.
+One day, Emperor Akbar called for Birbal. "Birbal, you had been to a wedding yesterday. What did you eat?"
+"Oh! I had laddus, phirni, pulao, hmm..." Birbal recounted. 
+"What else?"
+"Let me try to remember. Yes, there was kheer as well as biryani."
+"What else, Birbal?"
+"Oh, there were so many things like..."
 
-"Oh, Jahanpanah, I had laddus, phirni, pulao, kheer, and biryani..." Birbal began.
+Just then, a courtier interrupted with an urgent and important message for the emperor, and the conversation remained unfinished. 
 
-Before he could finish listing the menu, an urgent royal messenger interrupted with news, and the court turned to official business. 
+The next day in the durbar, Akbar wanted to test Birbal's famous memory. Completely out of the blue, he turned to him and asked, "What else, Birbal?"
+Birbal instantly realized that Akbar was referring to their interrupted conversation from the previous day. Promptly, he answered, "And curry, of course."
 
-The following morning in the crowded Durbar, surrounded by ministers and courtiers, Emperor Akbar decided to test Birbal's memory. Turning to him unexpectedly across the grand hall, Akbar asked, "What else, Birbal?"
+Akbar was immensely pleased. "Wah! Birbal. You are indeed great. Here! Take this pearl necklace."
+The other courtiers present were completely perplexed. "Why, the king must really be fond of curry," they whispered to each other. "He gave Birbal a precious present just for mentioning the word 'curry'."
 
-Without a second's hesitation, Birbal bowed and answered smoothly, "And curry, of course!"
+After the court had dispersed, the greedy courtiers got together. "We must bring the best curry for the emperor tomorrow. Yes, lots of it! Surely he will reward us too."
 
-Delighted by Birbal's flawless memory of their interrupted conversation from the previous day, Akbar unclasped a precious pearl necklace and presented it to him. 
+The next day, they proudly arrived in the durbar with their servants carrying huge urns of curry on their heads. 
+"What's all this? What are these men carrying to the court?" the royal guards asked. 
+"We have brought curry for you, Jahanpanah," the courtiers smiled eagerly. "We know now how much you like it."
 
-The envious courtiers present were utterly bewildered, assuming the Emperor was so obsessed with curry that he rewarded Birbal simply for mentioning the dish. That evening, the courtiers gathered secretly. "We must bring the finest curries to the Emperor tomorrow! Surely he will reward us too!"
+Akbar understood their foolishness at once. "You fools!" he roared. "What Birbal said yesterday was in another context entirely. As a punishment for your blind stupidity, I will make you eat all this curry yourselves, right now!"
+"Forgive us! We will not act in haste next time," the courtiers groaned, stuffing themselves with massive amounts of curry while Birbal had a very good laugh. 
 
-The next day, a procession of servants marched into the Durbar carrying massive brass urns of steaming curries on their heads. 
+***
 
-Akbar stared in amazement. "What is the meaning of this?"
+## The Only Rooster
 
-"Jahanpanah, we brought these curries for you, knowing how much you love the dish!" a minister grinned proudly.
+Akbar loved to play harmless tricks on Birbal to test his wits. "So many times have I tried to trap him, but he always gets the better of me. This time I will get even with him," Akbar thought. 
 
-Understanding their foolish mistake instantly, Akbar frowned. "You fools! What Birbal said yesterday was in an entirely different context. As a punishment for your stupidity, I order you to sit right here and eat every drop of these curries!"
+The next day at the court, he sent Birbal away on a short errand. While Birbal was gone, Akbar addressed the rest of the courtiers. "Here is a basket of eggs. I want each one of you to take an egg and keep it hidden in your robes. Later, when Birbal returns and I ask you to dive into the garden pool, you must pretend you found the egg at the bottom. Understood?"
+"Yes, Jahanpanah," the courtiers smirked, looking forward to Birbal's humiliation. 
 
----
+When Birbal returned, Akbar said, "Birbal, yesterday I had a strange dream. From it, I got an excellent idea for testing the purity and abilities of the men of my court. All of you must dive into the pond in the garden. The genuine, reliable men will magically find an egg in the water. If you come out without an egg, it would mean you are not reliable."
 
-### The Only Rooster
+Birbal saw the courtiers whispering and smirking. "Something is up! I am sure the emperor is up to one of his tricks," he thought. 
 
-Emperor Akbar loved to play harmless pranks on Birbal to see if he could ever outwit his clever minister. One morning, while Birbal was away on a royal errand, Akbar handed a basket of boiled eggs to his courtiers. 
+One by one, the courtiers dived into the pool. "Here, Jahanpanah, I have the egg!" they declared as they surfaced. "Me too!" another shouted. 
+"Now it's your turn, Birbal," Akbar smiled slyly. 
 
-"I want each of you to take an egg and hide it in your robes," Akbar instructed. "When Birbal returns, I shall order everyone to dive into the palace garden pond to search for a miraculous egg. When you come up, pretend you found your egg at the bottom of the pool!"
+"I suppose there must be a basket of eggs hidden at the bottom," Birbal thought as he dived in. He searched the bottom of the pool but found absolutely nothing. "There's nothing here! He must be trying to trick me."
 
-When Birbal returned to court, Akbar announced gravely, "Birbal, last night I had a strange dream. To test the loyalty and spiritual purity of my courtiers, everyone must dive into the garden pond. A truly reliable man will find an egg at the bottom!"
+"What will Birbal do? He has no egg. Serves him right, the pompous fellow! He'll be the odd man out," the courtiers whispered excitedly. 
+"Come on, Birbal! Let's see you and your egg. Hurry up," Akbar called out. 
 
-One by one, the courtiers dived into the water, emerging triumphantly with their hidden eggs. "Here, Jahanpanah, I found an egg!" each proclaimed, chuckling secretly at Birbal's impending embarrassment.
+Birbal came out of the pool completely empty-handed. After shaking the water off his body, he stood tall, flapped his arms against his sides, and crowed loudly, "Cock-a-doodle doo! Cock-a-doodle doo!"
 
-Recognizing the whispering and suppressed smiles, Birbal sensed a setup. He dived deep into the pond, searched the empty bottom, and understood the trick.
+"Where's your egg, Birbal? What on earth are you crowing for?" Akbar asked. 
+"Surely you know that only hens lay eggs, not cocks," Birbal replied calmly. "You have a very large brood of hens in this court, Huzoor. But I am the only rooster!"
 
-Emerging from the water, Birbal shook the water from his head, flapped his arms against his sides, and crowed at the top of his lungs: *"Cock-a-doodle-doo! Cock-a-doodle-doo!"*
+The courtiers felt deeply embarrassed to be called hens, while Akbar burst out laughing. "Ha Ha! Truly Birbal, you are really one of a kind!"
 
-Akbar looked on in surprise. "Where is your egg, Birbal? What on earth are you crowing for?"
+***
 
-Birbal smiled brightly. "Surely Huzoor knows that only hens lay eggs, not roosters! You have a large brood of hens in your court, but I am the only rooster!"
+## Parting of Friends
 
-The courtiers flushed with embarrassment as Emperor Akbar burst into hearty laughter, acknowledging Birbal's supreme wit once again.
+One day, while Birbal was away on a mission, Emperor Akbar called his courtiers together. "I am a little worried about Prince Salim."
+"Why, Huzoor? He's a fine boy. And so handsome too."
+"Yes, I know he is a good boy," Akbar sighed, "but of late, he has fallen into bad company."
+"Oh, you mean that boy, Yasin?" a courtier asked. "Yes, that fellow is no good."
 
----
+"Salim had learnt his royal duties so well. I was really proud of him," Akbar lamented. "But now all he does is laze about all day, play cards, and go for shikar with Yasin."
+"Yes, that's true," a minister agreed. "But it is very difficult to separate a 16-year-old from his best friend."
+"That is why I am consulting you," Akbar said. "After all, as the crown prince, his future is your concern too."
 
-### Parting of Friends
+A whole month passed, but no one could think of a viable plan. 
+"Huzoor, send Yasin away to another place," one suggested. 
+"No, that will only turn Salim against me."
+"Why not tell Salim what you think of Yasin?"
+"No, Mirza, that might just make Salim more fond of him."
 
-Emperor Akbar was deeply concerned about his sixteen-year-old son, Prince Salim. The young prince had fallen into the company of an idle courtier named Yasin, spending his days playing cards and hunting instead of learning statecraft. 
+When Birbal finally returned from his travels, Akbar turned to him for help. 
+"You want to separate the two young men without angering the prince?" Birbal smiled. "Give me just two days."
 
-"I want to separate Salim from Yasin," Akbar told his ministers, "but if I banish Yasin, Salim will resent me. If I speak ill of Yasin, Salim will defend him."
+The next day, in the middle of the crowded court, Birbal called Yasin over. He leaned in and whispered something into Yasin's ear. "Bzzzz!" 
+Then, aloud for everyone to hear, Birbal said, "Now, don't breathe a word of this to anyone."
+The courtiers were baffled. "Birbal must be going crazy," they whispered. "He just whispered 'Just one seed in every mango'?"
 
-When Birbal returned from a journey, Akbar sought his help. "Give me just two days, Huzoor," Birbal assured him.
+As soon as the court dispersed, a highly curious Salim rushed to meet Yasin. "What was it? What secret did Birbal tell you?"
+"Nothing," Yasin laughed. "He just whispered some nonsense."
+But Salim was not convinced. "He couldn't have called you in the durbar just to whisper nonsense in front of everyone."
+"It's true! Even I cannot understand it."
+"But surely he must have said *something*."
+"All right. If you insist," Yasin sighed. "All he said was 'Just one seed in every mango'."
 
-The next day in full court, Birbal walked up to Yasin, leaned over, and whispered nonsense into his ear: *"Just one seed in every mango!"* He then added aloud in a stern voice, "Now, do not breathe a word of this secret to anyone!"
+Salim glared at him. "You are hiding something from me, Yasin. I thought you were my friend."
+"Of course I am. I am telling you the exact truth."
+"I don't believe you, Yasin."
+"But it is true! He said just that. Maybe he's going crazy."
 
-The moment court adjourned, Prince Salim rushed to Yasin. "What secret did Birbal whisper to you?"
+Birbal, who was secretly overhearing the conversation from behind a pillar, smiled. 
+"Yasin, I don't want to talk to you ever again in my life," Salim declared angrily. 
+"If you don't trust me, I too don't want you as a friend!" Yasin retorted. 
 
-"Nothing, my Prince!" Yasin insisted truthfully. "He just whispered some nonsense—'just one seed in every mango'."
+The two parted ways, and soon, Prince Salim went back to his royal duties. 
 
-Salim's eyes narrowed. "Birbal wouldn't call you aside in open court just to whisper nonsense! You are hiding something from me!"
+***
 
-"I swear I am telling the truth!" Yasin pleaded.
+## The Phases of the Moon
 
-"I thought you were my friend, Yasin, but you do not trust me," Salim declared in anger. "I do not want to talk to you ever again!"
+Once Akbar sent Birbal to Kabul on a secret royal mission. Birbal dressed in ordinary clothes and tried to mingle with the local crowd in the bazaars. 
 
-Watching from behind a pillar, Birbal smiled as Prince Salim turned his back on Yasin and returned to his royal duties.
+However, a local spy spotted him. "I suspect that man! He doesn't look like an ordinary person. Yes, though he poses to be one of us, he is obviously an outsider. Why, he must be a spy. Let's report him to our king."
 
----
+The King of Kabul ordered the suspected spy to be brought before him. "Tell me truly. Who are you? Why are you here?"
+"I am just a traveller," Birbal replied smoothly. "I have travelled through many kingdoms and arrived here."
+"Is that so?" the King said. "Well, since you have travelled so much and seen so much of the world, tell me, what do you think of my rule?"
 
-### The Phases of the Moon
+Birbal paused to think. "You are like the full moon. No phase of the moon can compare with it for glory."
+The King looked immensely pleased by the high praise. As an afterthought, he asked, "And what of your own king in Delhi? What do you think of him?"
+"Oh him!" Birbal chuckled. "He is like the crescent moon—thin and weak."
 
-During a secret diplomatic mission to Kabul, Birbal mingled with the local populace. Suspecting he was a foreign traveler, local guards brought him before the King of Kabul.
+"I am very pleased with you," the King laughed. "Here, take this bag of coins as a gift."
+"Thank you, sire. You are indeed kind."
 
-"Tell me truly, stranger, who are you and what do you think of my rule?" the Afghan King demanded.
+Birbal successfully completed his mission and returned to Delhi. However, news of his conversation had reached the Mughal court before him. 
 
-Birbal bowed gracefully. "Your Majesty, you are like the full moon in all its glory. No phase of the moon can compare with your splendor."
+At the Diwan-I-Khas, Akbar was furious. "He pretends to be my loyal aide. But when he went to Kabul he declared in the court there that the King of Kabul was like a full moon, while I was just a weak crescent moon! I will ask him tomorrow."
 
-Pleased by the compliment, the King asked, "And what of your own ruler, Emperor Akbar?"
+Sure enough, the next day, Akbar confronted him. "Birbal, I have a serious charge against you. I have come to know that in the court of Kabul, just to flatter the king there, you made demeaning remarks about me. Tell me on oath, did you not compare me to a crescent moon, and the King of Kabul to a full moon?"
+"That I did, sire," Birbal admitted calmly. 
+"How dare you, Birbal! You are supposed to be my most loyal aide!"
 
-"Oh, him?" Birbal replied smoothly. "He is like the crescent moon—thin and weak."
+"I did make that comparison, sire," Birbal explained patiently. "But don't you realise that the full moon is destined to *decrease* in glory and size from that day forward? It is the crescent moon that is full of promise for the future! It will grow in glory day by day. Don't the Muslims and Hindus both venerate the rising crescent moon of the second lunar day, and not the full moon?"
 
-Delighted, the King presented Birbal with a heavy bag of gold coins. 
+Akbar's anger vanished, replaced by a broad smile. "I should have known better than to suspect you. As usual, Birbal, you win."
 
-However, news of the encounter reached Delhi before Birbal's return. An envious noble, Hussain Khan, reported to Akbar: "Jahanpanah, Birbal praised the King of Kabul as the full moon while insulting your Majesty as a mere crescent moon!"
+***
 
-The next morning, Akbar confronted Birbal sternly. "Birbal, on your oath, did you compare me to a crescent moon and the King of Kabul to a full moon?"
+## Value of Waste
 
-"I did, Sire," Birbal answered calmly.
+One day in the court, a courtier proudly presented a beautiful item. "See this excellent vase!"
+Akbar inspected it and frowned. "No, it's a little chipped at the rim. Take it away. Never show me anything broken."
 
-"How dare you!" Akbar's voice boomed. "You are supposed to be my most loyal minister!"
+Birbal gently intervened. "Why, Huzoor?"
+"Surely, Birbal, you know that anything that is broken, crushed or rotten is of no use to anyone," Akbar stated. 
+"Sometimes maybe, but that is not always true," Birbal countered. 
+"Prove it to me, Birbal."
 
-"Jahanpanah, consider the nature of the moon," Birbal explained wisely. "The full moon has reached its peak and is destined to decrease in size and glory every single day. But the crescent moon is full of promise—it grows in glory day by day until it illuminates the entire world! That is why the crescent moon of the second day is venerated by all."
+"Think of the sugarcane, Huzoor," Birbal said. "The juice we get from it by brutally breaking and crushing it gives us sugar, jaggery and delicious sweets, fit to be a divine offering. The cotton pod bursts forth and is broken to yield the cotton string. Clothes made from its spinning and weaving are fit for even a king. And the rotten, decaying rags, old jute and other wastes yield paper... paper that is used for the sacred Quran as well as our Puranas."
 
-Akbar's stern expression dissolved into a smile. "I should have known better than to doubt you, Birbal. As usual, you win!"
+Akbar nodded thoughtfully. "Indeed that's true, Birbal. Everything has its use in this world, even the broken, crushed and rotten stuff."
 
----
+***
 
-### Value of Waste
+## The True Owner
 
-One afternoon in court, Emperor Akbar examined a slightly chipped porcelain vase. "Take this away," Akbar ordered an attendant. "Never show me anything broken. Anything that is broken, crushed, or rotten is of no use to anyone."
+One day while Akbar, Birbal, and the other courtiers were in the Diwan-I-Am, a frantic man rushed in. 
+"Help me, Huzoor!" he cried. 
+"Calm down! What do you want us to do?" Akbar asked. 
+"Huzoor, I am a trader from Afghanistan. I hired a boat to bring my expensive goods here. Now the boatman falsely claims that *he* is the owner of my things!"
 
-"Why, Huzoor?" Birbal intervened gently. "Sometimes broken or crushed things yield the highest value."
+The boatman stepped forward, bowing deeply. "Though I am a stranger in these parts, I know your fame as a just king. Help me, I beseech you, I'll be a ruined man unless I get justice. He is trying to steal my cargo!"
+Akbar turned to his cleverest minister. "Birbal, find out the facts."
 
-"Prove it to me, Birbal," Akbar challenged.
+After Birbal heard their conflicting stories, he sent for the boatman's crew. "Why are you harassing this trader? Give him back his goods," Birbal demanded of the boatman. 
+"Huzoor, they are mine! He just took a ride on my boat. Ask all my oarsmen."
+The oarsmen answered readily in unison. "Yes, the goods belong to our Sahib."
 
-Birbal smiled. "Consider sugarcane, Sire. It is broken and crushed in heavy mills, yet from its destruction comes sweet jaggery and refined sugar fit for divine offerings. Consider the cotton pod—it bursts open and is beaten to yield fine thread, which is woven into robes fit for a king. And rotten, decaying rags and old jute are crushed to produce paper, upon which the holy Scriptures and royal decrees are written!"
+Birbal paused for a while. "We'll settle the matter here in the court tomorrow," he announced. 
 
-Akbar nodded in admiration. "Indeed that is true, Birbal. Everything in creation has its use, even that which is broken or discarded."
+After the court adjourned, Birbal changed his courtier's clothes to that of a *munim* (a merchant's clerk) and went down to the riverbank with a friend who acted as a wealthy merchant. 
+"There, the second boat. He is the man. Let's go," Birbal whispered. 
 
----
+As planned, his friend began to negotiate with the boatman. "What goods have you to sell?"
+"Oh! The finest Persian carpets," the boatman boasted. 
+"Are you planning to sell your things here?"
+"Yes, if possible. I have goods worth ten thousand rupees."
+"Well, the market for carpets is rather low in Delhi these days," the 'merchant' sighed. "So, if you want to sell your stuff quickly, I'll take it all for five thousand."
+"For half the price?" the boatman hesitated. 
+"Think about it and let me know. We are leaving."
+"Wait! Wait! I'll sell it for five thousand," the boatman agreed eagerly. 
 
-### The True Owner
+The 'merchant' turned to his 'clerk' (Birbal in disguise). "Munimji, just check the goods for their worth. Show us some samples."
+Birbal carefully examined the carpets. "Let me check the pile and the design of your carpets. Hmm, not very good I'm afraid. Even five thousand is too much for these inferior quality carpets. We shouldn't pay more than three thousand."
+"Well, if that's the maximum you are ready to pay, I'll have to accept it," the boatman sighed greedily. 
+"Agreed. We'll come tomorrow to collect the goods and pay the money."
 
-An Afghan merchant presented himself at Akbar's court in tears. "Huzoor, I hired a river barge to transport my shipment of ten thousand rupees' worth of fine Persian carpets to Delhi. Now the boatman claims that he owns the carpets, and his oarsmen back his lie!"
+Next, Birbal and his friend went to the inn where the Afghan trader was staying. 
+"I heard you have brought goods worth 10,000 for sale," the 'merchant' said. 
+"They are the finest of carpets," the trader said proudly. 
+"Well, the demand for carpets is rather low. Will you sell for five thousand?"
+"Whaaat?!" the trader exploded angrily. "No, never!"
+"Well, say seven thousand! Come, it's a good price. No one here will give you more than that. Think again."
+"Never mind!" the trader snapped. "I have bought the goods for ten thousand. I will sell them only at a profit, not otherwise. Good day to you!"
 
-Birbal summoned the boatman and his crew. The boatman insisted boldly, "The goods are mine! The merchant was merely a passenger." The oarsmen swore to the same story.
+The next day, at the appointed hour, the boatman and the trader came to the court. 
+"So, who is the owner of these carpets?" Akbar asked. 
+"I, sir," the trader said. 
+"No, they are mine," the boatman insisted. 
 
-Adjourning the court, Birbal dressed in the simple clothes of a merchant's clerk (*munim*) and visited the riverbank where the boat was anchored. Accompanied by a friend, Birbal approached the boatman. 
+Birbal, now absolutely certain who the true owner was, summoned the oarsmen and pulled them aside. "I know your secret," he glared at them. "Admit the truth right now, or else..."
+As he had expected, the scared oarsmen blurted out the truth. "Yes sir, the goods belong to the trader! Our master gave us 25 rupees each to lie and say they were his. Spare us!"
 
-"We are looking for fine Persian carpets," Birbal's friend said. "Will you sell your stock for five thousand rupees?"
+Now that his crime was out, the boatman quickly confessed. "Yes, that is true. I was tempted by the chance to make quick money."
+"Since it's your first offence, I'll let you off lightly," Akbar pronounced. "You must return the goods to the owner, and also pay him Rs. 500 as compensation. To the state, you must pay Rs. 500 as fine."
 
-The greedy boatman, anxious to dispose of the stolen goods, agreed immediately. "Yes! I'll sell the entire lot for five thousand!"
+***
 
-Later that evening, Birbal visited the inn where the Afghan merchant was staying, posing as a buyer offering five thousand rupees for the carpets. 
+## Limits of Loyalty
 
-The merchant refused indignantly. "Never! I bought these carpets for ten thousand rupees in Persia, and I will sell them only at a fair profit. I will not accept a single copper less!"
+There was nothing Akbar loved more than challenging Birbal. One day in the court, he said, "Birbal, I want you to find the most loyal and the most ungrateful creature on earth."
+"Yes, Huzoor."
+"Don't just say yes. You must present them physically in the durbar tomorrow morning, or else..."
+"As you please."
 
-Having established who truly knew the value and cost of the goods, Birbal summoned both parties to court the next morning. Calling the oarsmen aside, Birbal warned them sternly, "I know the truth. Confess now, or face execution!"
+Birbal agreed, but on going home, he was deeply troubled. His daughter noticed his distress. "Father, you seem to be worried. You've been staring at the ceiling for the last half hour."
+"Yes, I am a little disturbed. The emperor wants me to bring him the most loyal and the most ungrateful creature by tomorrow morning. How can I locate them so fast?"
+"Don't worry, father. Sleep peacefully. I'll give you both these in the morning," she smiled confidently. Birbal had immense trust in the mature intelligence of his daughter, and slept soundly. 
 
-Terrified, the oarsmen blurted out, "Forgive us, Sahib! The goods belong to the merchant! Our master paid us twenty-five rupees each to lie!"
+The next morning, as he got ready for court, he asked, "But those two creatures...?"
+"All you have to do is take with you your son-in-law, and our pet dog, Moti," she instructed. 
+Birbal's eyes lit up. "Yes. Of course! Why didn't I think of it earlier?"
 
-Confronted with the evidence, the boatman confessed. Birbal ordered the carpets restored to the Afghan merchant, fined the boatman five hundred rupees for the state treasury, and compelled him to pay five hundred rupees in compensation to the trader.
+Birbal arrived in the durbar with his son-in-law and his pet dog on a leash. 
+"What is this, Birbal? Why have you brought your dog? Don't you have any respect for the durbar?" Akbar frowned. 
+"On your instructions, Huzoor. You had asked me to bring you the most loyal creature."
+"So you brought a dog?"
+"Yes. If you give a stray dog even a single morsel of food, he will be ever so grateful. He will love you and follow you everywhere like a loyal shadow until his dying breath."
 
----
+"Hmm. Perhaps you are right," Akbar conceded. "But the other one...?"
+"You mean the ungrateful wretch. Here he is," Birbal said, pointing to his son-in-law. 
+"But that is your son-in-law!"
+"Yes, he represents all sons-in-law. No matter how much wealth, love, and respect you give them, they are never satisfied. They will always demand more and complain."
 
-### Limits of Loyalty
+Akbar laughed. "That's true, Birbal. But we must then reward the dog and punish the son-in-law." He turned to his guards. "Let the dog be fed sumptuously in the royal kitchens. As for the son-in-law, let him be hanged!"
+Birbal panicked. "But... But... Huzoor!"
+"No buts, Birbal. I believe in strict justice."
+"But he is only a specimen, only a *representative* of all sons-in-law!" Birbal pleaded. 
+"So? If you decide to award a punishment, *all* of them must be hanged."
+"What do you mean?"
+"I mean, you will have to hang *all* sons-in-law..." Birbal said pointedly. "...Including me, and your royal highness. Every one of us is somebody's son-in-law!"
+Akbar chuckled. "In that case, let him go!"
 
-Emperor Akbar once challenged Birbal: "Bring me the most loyal creature and the most ungrateful creature on earth by tomorrow morning, or face my displeasure!"
+***
 
-Birbal returned home thoughtfully. Noticing his concern, his daughter asked the reason. When he explained the challenge, she smiled. "Father, sleep peacefully. In the morning, take your son-in-law and our pet dog, Moti, to court."
+## And Off It Flew
 
-The next morning, Birbal walked into the Durbar accompanied by his pet dog and his son-in-law. 
+Akbar was extremely fond of stories. He could not sleep unless he listened to a new tale every single night. One by one, his courtiers would be summoned to his bedchamber. 
+"Hurry up, Asim. Today it is your turn to tell a story," they would tell each other. "And the king doesn't want to hear the good old stories. We must invent new tales for his majesty."
 
-Akbar frowned. "Birbal, why have you brought a dog into the royal assembly?"
+One evening, it was Birbal's turn. Birbal would spin a long, elaborate yarn. But Akbar was impatient. Each time Birbal paused for a single breath, Akbar would immediately ask, "And then?"
+"All he has to say is 'and then?'" Birbal thought in annoyance. "It's my poor jaw that gets weary talking! I must cure him of this habit of his. How can we find endless new stories every day?"
 
-"As per your instructions, Huzoor," Birbal bowed. "This dog represents the most loyal creature on earth. If you give a stray dog even a single morsel of food, he will remain ever grateful and follow you like a shadow till his dying day."
+Birbal waited patiently till his turn came again. 
+"Come Birbal, I am feeling restless. Tell me a *really* long story tonight," Akbar demanded. 
+Birbal settled down comfortably and began. "One day, a rich farmer ordered a massive granary to be made. He wanted the granary to be absolutely airtight, without any window or ventilation."
+"Hmmm."
+"When the wheat crop was harvested, it was stored in the new granary. But there was one little problem."
+"What?"
+"High up on one of the walls of the granary, a tiny, small opening remained. One day, a sparrow came, squeezed through the opening, took some grain in its beak, and flew off."
+"Then?" Akbar asked eagerly. 
+"Then another sparrow came, squeezed in, filled her beak with grain, and off it flew."
+"Then what happened?"
+"One more sparrow managed to get in, picked up two grains of wheat, and off it flew."
+"But what happened next?"
 
-"True," Akbar agreed. "And the ungrateful creature?"
+Birbal methodically described how the fourth bird flew in, then the fifth, then the sixth, repeating the exact same sentence fifty times. 
+"Oh come on! Enough of the sparrows picking grain!" Akbar shouted in frustration. "Move the story along!"
+"But, Jahanpanah, thousands of birds came to that granary," Birbal said innocently. "I have mentioned only fifty. Only when the granary is completely empty of its millions of grains will the story move on."
+"Why, it might take months or even years to complete the story!" Akbar realized. "Forget it! I don't want to hear any more stories tonight. Let me sleep!"
 
-Birbal pointed to his son-in-law. "Here he is, Sire! He represents all sons-in-law. No matter how much wealth, affection, and respect a father-in-law bestows upon him, a son-in-law is never satisfied!"
+***
 
-Akbar laughed, then declared sternly, "In that case, let the dog be rewarded sumptuously, and let the son-in-law be hanged!"
+## A Shared Dream
 
-Birbal stepped forward quickly. "Huzoor, if you decree hanging for ungrateful sons-in-law, every son-in-law in the realm must be hanged—including you, me, and all the nobles present, for everyone is somebody's son-in-law!"
+One day in the durbar of Akbar, the emperor smiled mischievously. "Birbal, I had the strangest dream last night."
+"What was it, Jahanpanah?"
+"We were both floating high in the sky like clouds. Then suddenly we both fell down with a loud bang."
+"Oh!"
+"I fell into a big pit filled with sweet, fragrant honey. But you, Birbal, fell into a stinking, dirty gutter!" Akbar laughed loudly, and the courtiers joined in the mocking laughter. 
+"Huh!" Birbal grunted. 
 
-Akbar burst into laughter. "In that case, let him go!"
+"Oh, how strange, Jahanpanah! How very odd," Birbal mused. 
+"Isn't it?" Akbar smirked. 
+"No. I mean I too had *exactly* the same dream."
+"Really?" Akbar asked, surprised. 
+"Yes, but I think your majesty awoke before the dream was over."
+"Why, Birbal?"
+"Because, in my dream, with great effort you got out of the honey pit. I too managed to clamber out of my gutter. And, then, Jahanpanah! We both began to lick one another clean!" 
 
----
-
-### And Off It Flew
-
-Emperor Akbar had a habit of listening to bedtime stories every night and insisted on hearing new tales. If a storyteller paused, Akbar would impatiently prompt, "And then? And then?"
-
-When it was Birbal's turn to tell a story, he resolved to cure the Emperor of this wearying habit. 
-
-"Once upon a time," Birbal began, "a wealthy farmer built a massive, airtight granary to store his harvested wheat. But high up on one wall, a tiny hole remained. One morning, a sparrow flew in through the hole, picked up a grain of wheat, and off it flew."
-
-"And then?" Akbar asked.
-
-"Then another sparrow flew in, picked up a grain of wheat, and off it flew."
-
-"And then?"
-
-"Then a third sparrow flew in, took a grain, and off it flew... then a fourth sparrow flew in, took two grains, and off it flew..."
-
-For an hour, Birbal continued describing sparrows flying in and out of the granary. 
-
-"Enough of sparrows!" Akbar interrupted peevishly. "What happened after that?"
-
-"Jahanpanah," Birbal replied innocently, "thousands of sparrows entered that granary. Only when every single grain of wheat has been carried away can the story move on! It may take months or years."
-
-Realizing Birbal's clever lesson, Akbar chuckled and pulled the covers up. "Forget it! I don't want to hear any more stories tonight."
-
----
-
-### A Shared Dream
-
-One morning in court, Emperor Akbar decided to poke fun at Birbal before the assembled nobles. "Birbal, I had the strangest dream last night! We were both floating in the sky like clouds when suddenly we fell down with a bang. I fell into a huge pit filled with sweet, golden honey... while you, Birbal, fell into a pit filled with foul, smelly gutter filth!"
-
-The courtiers roared with laughter, eager to see Birbal humbled.
-
-Birbal smiled serenely and bowed. "How extraordinary, Jahanpanah! I had the exact same dream last night!"
-
-Akbar looked surprised. "Really?"
-
-"Yes, Sire," Birbal continued smoothly. "But I think your Majesty woke up before the dream ended. In my dream, after we climbed out of our respective pits with great effort... you began to lick me clean, and I began to lick you clean!"
-
-The court erupted into uncontrollable laughter as Emperor Akbar smiled sheepishly, once again acknowledging Birbal's unbeatable wit.
+Akbar's laughter died instantly, while the rest of the court struggled to hide their grins.

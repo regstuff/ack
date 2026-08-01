@@ -1,57 +1,55 @@
 # Durgesh Nandini
 
-Late one summer afternoon, during Emperor Akbar's reign, a Rajput youth was riding from Vishnupur to Mandaran. It was Jagat Singh, the Prince of Amber and son of Raja Man Singh. He had been sent by the Emperor to stop Katlu Khan, the Pathan ruler of Orissa, who was now marching to take Bengal as well. 
+Late one summer afternoon, during Emperor Akbar's reign, a Rajput youth was riding from Vishnupur to Mandaran in Bengal. "The Emperor has sent us here to regain Orissa from Katlu Khan... and Katlu Khan is out to take Bengal as well," he mused. 
 
-Suddenly, the sky darkened and a fierce storm broke out. "It's going to rain, I must hurry!" Jagat Singh thought. As lightning flashed, he spotted the Shaileshwar temple and ran inside for shelter. 
+Suddenly, the sky darkened, and it started pouring. A flash of lightning lit up the place, revealing a temple. The youth dismounted, tethered his horse, and ran inside. He found two women sheltering there, frightened by his sudden appearance. 
+"Please, don't be afraid! As long as I am here you are safe. I am a Rajput," he assured them. He was mesmerised by the younger woman's beauty. "Is she an angel... a fairy... or a goddess...?" he wondered. 
 
-Inside the temple, he was surprised to find two women—an older woman and a breathtakingly beautiful younger girl. "Please, don't be afraid! As long as I am here you are safe. I am a Rajput," he assured them. As the older woman spoke to him, Jagat Singh couldn't take his eyes off the younger one. "Is she an angel? ...A fairy... or a goddess?" he wondered. 
+"Thank you, sir! We came here to worship Lord Shaileshwar. Our attendants must have sought shelter elsewhere," the older woman explained. 
+When the storm abated, their attendants returned. "Please do not tell anyone you met me here," the younger woman requested shyly. 
+"You can tell him that the Prince of Amber, Jagat Singh, son of Raja Man Singh, was your escort," the Rajput youth declared. 
+"Oh, God! Did it have to be him?" the young girl thought in dismay, for Raja Man Singh was a sworn enemy of her father. 
+"Farewell, my divine beauty! Will I ever see you again?" Jagat Singh asked. 
+"If you could meet me somewhere after fifteen days, perhaps..." the young girl hinted. 
 
-When the storm finally abated, the women prepared to leave. "Thank you, sir. But when my master, this lady's father, asks us who brought us back, what should I tell him?" the older woman asked. 
+Meanwhile, Jagat Singh reached his father's camp at Burdwan. "Katlu Khan has left Orissa with about 50,000 soldiers, and has entered Bengal," he reported. "He's capturing forts... at the moment he is at Dharpur near Garh Mandaran."
+"Maharaj! With your permission I can drive out Katlu Khan with just five thousand soldiers," Jagat Singh proposed, and Man Singh agreed. 
 
-"You can tell him that the Prince of Amber, Jagat Singh, son of Raja Man Singh, was your escort," he smiled. 
+A few days later at Garh Mandaran, Raja Virendra Singh was discussing the impending battle. "I plan to remain neutral," he told his advisor. 
+"With your comparatively small force you cannot survive by remaining neutral. If I have to take sides, I'd pick the Pathans," the advisor warned. 
+"I would have but for Katlu Khan's audacity. He has threatened to attack us if I don't join him. And I don't like threats," Virendra Singh scoffed. 
 
-The younger girl looked back at him one last time, her eyes filled with newfound affection. "Farewell, my divine beauty! Will I ever see you again?" Jagat Singh whispered to himself. 
+A week later, at the Shaileshwar temple, Jagat Singh met the older woman again. "Today, may I know who stands before me and who her young mistress is?"
+"I am Vimla. She is Durgesh Nandini (the daughter of the master of the fort), Tilottama, the daughter of Raja Virendra Singh of Garh Mandaran," she revealed. 
+"Raja Virendra Singh! My father's sworn enemy! Oh no!" Jagat Singh gasped. He pleaded to meet her. Vimla agreed to sneak him into the fort at midnight. 
 
-The two women returned to Garh Mandaran, the home of Raja Virendra Singh. The beautiful girl was Tilottama, Durgesh Nandini, the daughter of the Raja. The older woman was Vimla. 
+As Jagat Singh and Vimla walked towards Garh Mandaran in the dead of night, Jagat Singh noticed two men hiding in the bushes. Suspecting a trap, he killed them and found a note on them. "Follow the orders of the bearer of the note - Katlu Khan."
+"My master has refused to join Katlu Khan. Perhaps the Khan has plans to take revenge on him. Let's hurry in," Vimla panicked. 
 
-Meanwhile, Jagat Singh reached his father's camp at Burdwan. His commander informed him that Katlu Khan had entered Bengal with 50,000 soldiers. Unfazed, Jagat Singh declared, "Maharaj! With your permission I can drive out Katlu Khan with just five thousand soldiers." 
+Vimla hurried towards the fort and entered through a secret door, leading Jagat Singh to Tilottama's room. But the moment the secret door was opened, Usman Khan, Katlu Khan's nephew, stormed in with his troops. "Don't shout, my dear lady! I am Usman Khan. You kept the secret door open for me!"
+The Pathans quickly overpowered Jagat Singh and imprisoned Raja Virendra, Vimla, Tilottama, and Jagat Singh in a nearby fort captured by Katlu Khan. 
 
-A few days later at Garh Mandaran, Raja Virendra Singh discussed the impending war with his guru. "I plan to remain neutral," the Raja stated. But he knew that remaining neutral against the mighty Mughals and Pathans was nearly impossible. 
+A few days later, Virendra Singh was executed by Katlu Khan. Vimla watched without shedding a tear, but vowed, "I'll avenge your death, my lord."
+Later, Usman Khan came to Vimla. "I am sorry, I didn't know you were Raja Virendra's wife. In a way I am the root cause of all your miseries," he apologized, and gave her his ring. "On Katlu Khan's birthday, come out here in the evening and show it to the man wearing an identical ring. He will wait for you here... and take you out of this fortress."
 
-A week later, at the Shaileshwar temple, Jagat Singh secretly met Vimla. He begged her to let him see Tilottama again. "It is very difficult... unless... you come with me to the fort. Tonight!" Vimla suggested. 
+Vimla slipped into the room where Tilottama was kept and revealed a shocking secret. "When I grew older, I was reunited with my father at Delhi. There I met a handsome pupil of his whom I married. But it was a secret marriage because my husband had a daughter by an earlier marriage... My husband was your father, Tilottama! Katlu Khan has beheaded my husband... a short while ago."
 
-At midnight, Jagat Singh sneaked into the fort like a thief. Vimla led him to Tilottama's room. But their joyous reunion was cut short. Outside, Usman Khan, Katlu Khan's nephew, had arrived with his troops. Having discovered the secret door, they stormed the fort. 
+Meanwhile, unknown to them, Jagat Singh had been saved from death by the tender care of Ayesha, Katlu Khan's beautiful daughter. Usman Khan came to him with an offer. "Let the Mughals leave Orissa alone and we'll get out of Bengal. Why don't you persuade your father to enter into a treaty with us?"
+"I am a Rajput, Usman! I cannot ask my father to betray the Emperor," Jagat Singh refused. He was immediately locked in a cell. 
 
-"Don't shout, my dear lady! I am Usman Khan, Katlu Khan's nephew," the Pathan announced, surprising Vimla on the terrace. 
+On Katlu Khan's birthday, Vimla gave the ring to Tilottama. "Take this ring and wait outside the zenana. A man wearing a similar ring will take you out of this fortress."
+But instead of escaping, Tilottama asked the man, "Please take me to Prince Jagat Singh."
+When she was brought to Jagat Singh's cell, she swooned from exhaustion. Ayesha, who was visiting the prisoner, took care of her. 
+Usman Khan entered and questioned Ayesha's presence in the prisoner's cell at midnight. 
+"As the Nawab's general, I am entitled to an explanation," Usman demanded. 
+"Then listen! The prisoner is my chosen lord. And till the day I breathe my last, no other man will ever occupy that place in my heart," Ayesha declared boldly. 
 
-The Pathans quickly overpowered Jagat Singh and captured the fort. Raja Virendra Singh, Vimla, Tilottama, and Jagat Singh were all taken as prisoners to a nearby fort controlled by Katlu Khan. 
+Meanwhile, Vimla had decked herself in finery and enchanted Katlu Khan in his chambers. When his guard was down, she stabbed him with a poisoned dagger and slipped away in the ensuing panic. 
+The dying Nawab sent for Jagat Singh. "My sons... are young... promise me a treaty... please," Katlu Khan begged. 
+"I'll try my best. If you give up what you have taken in Bengal... I'll request Emperor Akbar to leave Orissa to you," Jagat Singh promised. 
+With his dying breath, Katlu Khan cleared Tilottama's name, confirming her purity and safety during her captivity. 
 
-In the fortress, Usman Khan approached Vimla. He slipped a ring onto her finger. "On Katlu Khan's birthday, come out here in the evening and show it to the man wearing an identical ring. He will wait for you here..." 
-
-Meanwhile, unknown to them, Jagat Singh, who had been badly wounded during the capture, was saved from the jaws of death by the tender care of Ayesha, Katlu Khan's beautiful daughter. Ayesha secretly fell deeply in love with the brave Rajput prince. 
-
-Usman Khan visited Jagat Singh's cell to deliver terrible news. "Raja Virendra has been executed. His daughter is to wed Katlu Khan. I have come with an offer from him. If you do not accept his offer, Katlu Khan has ordered me to lock you up in a cell." Katlu Khan wanted Jagat Singh to betray his father and the Mughal Emperor. 
-
-Jagat Singh refused fiercely. "I am a Rajput, Usman! I cannot ask my father to betray the Emperor." 
-
-Vimla, devastated by the news of her husband's execution, revealed a long-kept secret to Tilottama. "I am your father's secret wife, Tilottama," she wept. Seeking revenge, Vimla formulated a daring plan. She gave Tilottama a ring filled with deadly poison. "Take this ring and wait outside the zenana. A man wearing a similar ring will come to you..." 
-
-On the night of Katlu Khan's birthday festivities, Vimla dressed herself in her finest jewelry and went to Katlu Khan's quarters. Bewitched by her beauty, Katlu Khan welcomed her. "Ah, Vimla! You are enchanting," he slurred, heavy with wine. 
-
-But as he leaned in, Vimla struck. With a hidden dagger, she stabbed the Pathan leader. "I'll avenge your death, my lord!" she whispered as Katlu Khan fell. 
-
-In a panic, the guards rushed in, leaving the gates open, allowing Vimla to walk out freely. 
-
-The dying Nawab, realizing his end was near, sent for Jagat Singh. "My sons... are... young... promise me a treaty... please," Katlu Khan gasped. 
-
-"I'll request Emperor Akbar to leave Orissa to you," Jagat Singh promised the dying man. 
-
-"Yes... yes. Bengal... Akbar's... Orissa... my sons'... yes... thank..." And with those words, Katlu Khan closed his eyes forever. 
-
-In the months that followed, an agreement was reached between the Pathans and the Mughals. With the war over and the tyrant dead, Jagat Singh and Tilottama were finally united in marriage. 
-
-On their wedding day, Ayesha presented Tilottama with a casket of priceless jewellery. "They are beautiful, simply beautiful, sister. Thank you!" Tilottama beamed. 
-
-"Well, they are nothing compared to the jewel you have acquired today," Ayesha smiled bravely, hiding her own heartbreak. 
-
-After fond farewells, Ayesha left Garh Mandaran. Standing on a bridge over a gently flowing river, she took off the poison ring she had carried for so long. "I don't need it. I have found peace and happiness in the happiness of Jagat Singh and Tilottama," she smiled, and flung the ring into the water.
+In the months that followed, an agreement was reached between the Pathans and the Mughals. Jagat Singh and Tilottama were united in marriage. 
+Ayesha visited Tilottama on her wedding day and gifted her a casket of priceless jewellery. After fond farewells, Ayesha left Garh Mandaran. 
+Looking at a ring filled with poison that she had kept for herself, Ayesha thought, "This is the only piece of jewellery left with me now... And I don't need it. I have found peace and happiness in the happiness of Jagat Singh and Tilottama." 
+With a serene smile, Ayesha flung the poisoned ring into the gently flowing river.

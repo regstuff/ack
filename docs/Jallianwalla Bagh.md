@@ -1,73 +1,42 @@
-# Jallianwalla Bagh
+# Jallianwalla Bagh: The Beginning of the End of the British Raj
 
-In the year 1919, there was unrest in Punjab. In Amritsar, the British rule was considered both oppressive and inefficient by the people. "Prices are soaring, what can I do? The government extorts high taxes!" people complained. 
+In the year 1919, there was great unrest in Punjab. The British rule was considered oppressive and inefficient by the people. The government was passing the infamous Rowlatt Bill, which gave them the power to arrest and jail Indians merely on suspicion. 
 
-To make matters worse, the government passed the Rowlatt Bill. "If the government wants to, it could have you arrested and sent to jail, merely on suspicion," the people realized with shock. "The Rowlatt Act gives the government that power." 
+Mahatma Gandhi declared the Rowlatt Act a symbol of national humiliation and called for *Satyagraha*, urging the people of India to observe a day of *hartal* (strike) on March 30. Prominent Gandhian leaders in Amritsar, Dr. Saifuddin Kitchlew and Dr. Satyapal, explained Gandhi's non-violent methods to the people. 
 
-People in Amritsar, as in other parts of India, looked to Gandhiji for guidance. "Gandhiji says the Rowlatt Act is a symbol of national humiliation!" Dr. Saifuddin Kitchlew, a prominent Gandhian, explained. "Satyagraha is a process of self-purification. Ours is a sacred fight... to this end Gandhi wants that all the people of India should observe a day of hartal on March 30." 
+The *hartal* on March 30 was a total success. Over 30,000 people attended a peaceful meeting at Jallianwalla Bagh. Gandhi later postponed the official date of the *hartal* to April 6. The April 6 *hartal* was equally successful, with nearly 50,000 people attending a peaceful meeting. 
 
-March 30, 1919, was observed as a day of prayer and total abstention from work. No shops were opened. The streets were deserted. In the evening, a meeting was held at Jallianwalla Bagh, attended by over 30,000 persons. The meeting was a total success, and there was no violence. 
+However, the Deputy Commissioner of Amritsar, Mr. Irving, was increasingly worried about the unity among the people, especially when he witnessed Hindus and Muslims fraternising during the Ram Navami procession on April 9. Fearing a rebellion, the British officials decided to deport Dr. Kitchlew and Dr. Satyapal to Dharamsala. 
 
-Soon after, there was news that the date of the hartal had actually been postponed by Gandhiji to April 6. The April 6 hartal was as successful as the previous one. 
+On April 10, the two leaders were called to the Deputy Commissioner's bungalow and secretly driven away under armed escort. Within an hour, the news spread, and excited, unarmed groups gathered in the streets to protest. The crowds snowballed to 50,000 people, who marched towards the civil lines to demand the return of their leaders. 
 
-Mr. Irving, the Deputy Commissioner of Amritsar, was a worried man. "These men, Kitchlew and Satyapal, seem to have a tremendous influence over the people. They just call for a hartal and the people obey," he thought. He called a conference of senior officials. "If we deport Kitchlew and Satyapal, I expect trouble," he warned. They decided to deport the leaders secretly. 
+They were stopped at the carriage-bridge by a military guard. As the frustrated crowd surged forward, the mounted soldiers, in desperation, turned around and fired, killing three or four people and wounding many. Provoked, the people threw stones. Two policemen dismounted and fired into the crowd, killing more. 
 
-On April 10, Dr. Kitchlew and Dr. Satyapal were called to the Deputy Commissioner's bungalow on the pretext of a discussion. Soon after, they were placed in motor cars and driven away under a British escort. 
+The sight of the dead and wounded being carried through the bazaars roused the crowds to anger and revenge. Disorganised and leaderless, the crowd became a violent mob. They attacked the railway goods yard, the telegraph office, and several banks. Two British bank officials were beaten to death, and the banks were set on fire. The mob also attacked an English woman, Miss Sherwood, leaving her severely injured. The town became unsafe for Europeans, who were evacuated to Govindgarh Fort. 
 
-In spite of all precautions, the news spread within an hour. "Our leaders have been arrested! Close your shop! Stop all business!" Excited groups of people gathered in the streets to protest. Soon the crowds snowballed to 50,000 ordinary, unarmed citizens. 
+Appalled by the violence, prominent citizens of Amritsar blamed the government for firing on an unarmed crowd. However, the British authorities swung into action. Brigadier-General Dyer arrived in Amritsar on April 11. Declaring that the city was in a state of rebellion, he took charge. 
 
-"We must have our leaders back or we must be prepared to die! We will talk to the Deputy Commissioner! Where are our leaders?" the crowd demanded. 
+On the morning of April 13, Baisakhi Day, General Dyer issued a proclamation in Urdu and Punjabi: "Any gathering of more than four men will be treated as unlawful and dispersed by force of arms." 
+Almost immediately, counter-announcements were made by local men banging empty tins, declaring that a meeting would be held at Jallianwalla Bagh at 4:30 P.M. Hearing this, General Dyer decided to teach the people a lesson. 
 
-The crowd walked towards the civil lines, until they reached the carriage-bridge. "Look! There are mounted troops on the carriage-bridge!" 
+Jallianwalla Bagh was a large open space surrounded by houses, with only three or four narrow entrances. Because it was Baisakhi, many peasants from neighbouring villages, along with women, teenagers, and children, gathered there to relax, unaware of Dyer's proclamation. 
 
-"Keep moving! Don't be afraid," the leaders urged. 
+As the meeting progressed peacefully with around 25,000 people in attendance, General Dyer and his troops arrived. Finding the main entrance too narrow for his armoured cars with machine guns, Dyer deployed his ninety armed soldiers—Gurkhas to the left, Baluchis to the right—inside the entrance. 
 
-When they had nearly reached the other end of the bridge, the mounted soldiers, in desperation, turned round and fired at the crowd. Three or four died and many were wounded. 
+Seconds later, without any warning to the crowd to disperse, General Dyer gave the order: "FIRE!"
 
-The people were provoked. They picked up stones stacked on the roadside and threw them at the picket. "We must have our two leaders back... or we are ready to die!" 
+Initially, the people thought they were blank shots, but panic set in as people began to fall dead and wounded. The crowd ran helter-skelter, but there was nowhere to go. The soldiers blocked the main entrance, and Dyer specifically ordered his men to direct their fire at the narrow gaps between the buildings where the fleeing crowds were thickest. They fired low, aiming for maximum killing. 
 
-The police fired again, bringing the crowd to a standstill. The sight of the dead and wounded being carried through the bazaars roused the crowds to anger and revenge. Tension began to mount. "Yes, he's dead! Killed by the Sahibs! We will kill the Sahibs!" 
+The shooting continued relentlessly for ten minutes. When it finally stopped, the Bagh was littered with heaps of dead bodies. At least one thousand people were killed, and three times that number were wounded. The wounded cried out for water, but the soldiers callously marched away, leaving them to die in misery. Curfew was imposed, preventing relatives from helping the victims. 
 
-Disorganised and leaderless, the crowd had now become a mob. They attacked the railway goods yard, the telegraph office, and set banks on fire, killing the British managers. In their blind fury, they even attacked an English woman, Miss Sherwood, knocking her from her bicycle and beating her, though she was later saved by local shopkeepers. 
+That night, a triumphant Dyer toured the silent streets, satisfied that he had instilled terror in the hearts of the Indians. He reported the "incident" to the Lieutenant-Governor, Sir Michael O'Dwyer, who approved of the action. 
 
-The town had become unsafe for Europeans. Women and children were taken to the Govindgarh fort under armed escort. 
+The British government tried to suppress the horrific truth of the massacre, but news spread by word of mouth. The Jallianwalla Bagh incident did enormous harm to the British image in India, shattering the faith of leaders like Motilal Nehru in British justice. 
 
-At 9:00 P.M. on April 11, Brigadier-General Dyer arrived in Amritsar and took charge. "The whole city is hostile to the British. We are besieged. Civil authority has come to an end," the officials told him. 
+When the news finally broke, the resulting general outcry forced the government to set up the Hunter Committee of Enquiry. General Dyer defended his actions, stating that if he had merely dispersed the crowd, they would have returned and laughed at him, making him look like a fool. 
 
-On April 13, Dyer issued a proclamation in Urdu and Punjabi. "Any person found in the streets after 8 P.M. is liable to be shot down. Any gathering of more than four men will be treated as unlawful and dispersed by force of arms." 
+The Hunter Committee criticised Dyer for firing without warning and for continuing to fire after the crowd had begun to disperse. The British Government, concluding that his action was "in excess of his brief," asked him to resign. 
 
-Immediately after this, two men went round the city banging an empty tin. "A meeting will be held at Jallianwalla Bagh at 4:30 P.M. Messages from Kitchlewji and Satyapalji will be read out! All are welcome," they announced. 
+Dyer left for England, still believing he had done a great service. "I have saved the Punjab," he protested. Many in Britain agreed with him, viewing him as the saviour of the British Empire and raising a fund to reward him. 
 
-Dyer was informed. "So they still persist in their folly. Well, we shall see who has the last laugh!" he declared. 
-
-Jallianwalla Bagh was a large enclosed area in the heart of the town, surrounded by houses, with only three or four narrow openings. That day happened to be Baisakhi, the New Year's Day, particularly auspicious to the Sikhs. The town was full of holidaying peasants from neighbouring villages who had come to the Golden Temple and the Bagh to relax, unaware of the ban. 
-
-Soon the crowd swelled into a big gathering of at least 25,000 people, including teenagers and children. The meeting began, and speakers addressed the gathering peacefully. 
-
-Suddenly, a plane flew overhead. People panicked, but were reassured by a political worker. "Sit down! Sit down! Don't panic! The plane is doing its work and we will continue ours." 
-
-Meanwhile, Dyer had assembled a striking force of ninety men. At 4:15 P.M., it was sent to Jallianwalla Bagh. Dyer and his troops advanced up the narrow passageway. 
-
-Seconds later, General Dyer gave the order. "FIRE!" 
-
-"There was a flash... but the people just could not believe their eyes. 'Ho! Ho! Blank shots! Those were blank shots!'" 
-
-But the grim reality of the situation was realised as a number of people in the crowd fell, some dead and some wounded. Blindly some people began to run. 
-
-"But where could they go? The soldiers with their guns were at the entrance." While they were running helter-skelter, the soldiers were reloading and firing. They fired low, aiming at maximum killing. 
-
-On Dyer's order, the guns were directed straight at the narrow gaps through which people were trying to escape. People continued to fall, but still the shooting did not stop. 
-
-When the shooting stopped ten minutes later, there were heaps of dead bodies everywhere. At least one thousand people were killed and three times that number wounded. The wounded cried out for water. 
-
-"But the soldiers just marched away." Even in a war, wounded enemy soldiers are given first aid, but at Jallianwalla Bagh, unarmed citizens were abandoned to die in misery. Dyer instituted a strict curfew at 8:00 P.M., preventing anyone from helping the wounded. 
-
-"I'll tell you what. For a start it should not deport the people who stand for non-violence and who could act as the conscience of the people," prominent citizens told the Deputy Commissioner later, appalled at the massacre. 
-
-The British tried to suppress the Jallianwalla Bagh episode through censorship, but the news slowly trickled through India. There was a general outcry. The British government was forced to set up a committee of enquiry, called the Hunter Committee. 
-
-"I could have dispersed them for some time. But then they would all have come back and laughed at me and I considered I would be making myself a fool," Dyer callously told the committee. 
-
-The Hunter Committee criticized Dyer for opening fire without warning and continuing to fire after the crowd had begun to disperse. He was forced to resign. Yet, many British officials and citizens approved of his actions, viewing him as the man who "saved the Punjab." 
-
-But as far as Indians were concerned, the Jallianwalla Bagh episode was the beginning of the end of the British Raj. It turned millions of loyal supporters into nationalists, strengthening the resolve for freedom.
+However, for the Indians, the brutal massacre of unarmed men, women, and children at Jallianwalla Bagh was a turning point. It proved the utter callousness of the British rulers and intensified the struggle for independence. Jallianwalla Bagh became a sacred symbol of martyrdom and marked the beginning of the end of the British Raj.

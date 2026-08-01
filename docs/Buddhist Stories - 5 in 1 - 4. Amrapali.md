@@ -1,49 +1,118 @@
-# Amrapali: The Pride of Vaishali
+# Amrapali: Chosen by Buddha
 
-In ancient Vaishali, the capital of the powerful Licchavi Republic, a royal gardener discovered an abandoned baby girl lying beneath the shade of a flowering mango tree. Taking the child home, he named her **Amrapali** ("The Mango Maiden").
+The Licchavi nobles, who ruled over ancient Vaishali, were great lovers of beauty and took a keen interest in the maintenance of their public gardens. The absolute best of gardeners were employed to tend the plants. 
 
-As Amrapali grew into young womanhood, her extraordinary beauty became the talk of Northern India. Licchavi nobles and princes from distant lands fought bitterly for her hand in marriage, and civil war threatened to erupt over her possession.
+One day, while working in the royal park, a gardener gasped. "What's that under the mango tree? Why, it's a lady! What an extra-ordinary beauty!"
+He went up to her. "Who are you, fair lady? What is your name? Where have you come from? And what is your destination?"
+"I don't have a name. I come from nowhere and have nowhere to go," the mysterious maiden replied softly. 
+"Are you going to live in this garden?"
+"Yes. If you do not mind, I would like to live here."
+"I certainly don't mind. But this garden belongs to the nobles," the gardener thought. "They should be informed."
 
-To preserve peace, the council of elders made a radical decision. "Amrapali cannot belong to any single nobleman," the Chief Minister declared. "She shall belong to all of Vaishali as the State Courtesan."
+Leaving her in the garden, he rushed to the council of nobles. "A strange lady has appeared in the state garden! In all Vaishali there is no one as beautiful as she is!"
+"Who could she be? Why has she come here?" the nobles wondered, and immediately rushed out to the garden. 
 
-Amrapali accepted her destiny gracefully. The state built her a magnificent palace set within a sprawling mango grove. A master of classical dance and music, Amrapali gave spellbinding performances before the assembly of nobles, becoming the ultimate pride and jewel of Vaishali.
+When they reached the garden, they were stunned. "The gardener knew what he was talking about! She is the most enchanting lady I have ever seen!"
+Immediately, a fierce fight broke out among the proud nobles. Each wanted the maiden for himself! 
+"Amrapali shall be mine!" one noble declared, drawing his sword. (*Amrapali* meant the 'mango-girl', as she was found near the mango tree). 
+"You'll have to take her from me first!" another shouted, attacking him. 
 
-During this era, hostilities flared between Vaishali and the kingdom of Magadha. One evening, after the Licchavi nobles rushed out from her performance to defend the borders against a Magadhan raid, a handsome stranger presented himself at Amrapali's mansion, requesting a private dance performance.
+Suddenly, Amrapali stepped between them. "Stop! Do I have no choice in the matter? Can I not have my say?"
+The nobles lowered their swords in shame. "We have been selfish, thoughtless! You choose one among us, Amrapali. The one you choose shall marry you."
+"If I choose one of you, I will no doubt be making him very happy," Amrapali said wisely. "But I will be making all the others extremely jealous and angry. So I will not marry any of you."
 
-Charmed by his noble bearing, Amrapali danced for him. The stranger stayed at her mansion as her guest for a week, and a deep affection grew between them. 
+The elders of Vaishali, who had hurried to the garden on hearing the clash, supported her. "A wise decision, indeed! Amrapali cannot belong to one person. She shall belong to Vaishali."
+"We agree," the young nobles nodded. 
+"Amrapali has no place to live in. Let us present this garden to her," one elder suggested. 
+"And we could have a grand house built here for her," another added. 
 
-On the morning of his departure, the stranger took her hand. "Amrapali, come away with me to my kingdom!"
+As soon as the house was ready, the elders handed over the keys. "This garden and the house are yours, Amrapali."
+"I shall ever remain indebted to the people of Vaishali for the love they have shown me," she smiled. 
 
-"You are a total stranger," Amrapali smiled. "I do not even know your name."
+To entertain the nobles of Vaishali in return, Amrapali, who was an incredibly excellent dancer, began to give public dance performances. 
+"Such perfect rhythm!" "She is matchless!" "No other kingdom can boast of such an accomplished dancer!" "She is indeed the absolute pride of Vaishali!" the nobles cheered. 
 
-"I am Bimbisara, King of Magadha," he revealed.
+One evening, when the nobles were watching Amrapali perform, a messenger rushed in, panting heavily. "Master! I have bad news! Vaishali is in danger! The Magadhan army is heading towards Vaishali."
+"What! That monster King Bimbisara again!" a noble cursed. 
+"Duty calls! We will see you later, Amrapali," they said, rushing off to arm themselves. 
 
-Amrapali recoiled in shock. "The dreaded King of Magadha! How can you speak of love when your soldiers are killing my people on the battlefield?"
+As Amrapali watched the young men of Vaishali ride to the bloody battlefield, she felt deeply disturbed. "Why do men fight? What do they gain by killing one another? One moment they appreciate beauty and art; the next, they thirst for blood."
 
-"If I order an immediate end to all hostilities and withdraw my armies from Vaishali, will you marry me?" Bimbisara asked earnestly.
+A few days later, as the war raged at the borders, a handsome stranger called on her house. "What a winsome personality he has!" Amrapali thought. 
+"I have come a long way to see you dance. Will you dance for me, fair one?" the stranger asked. 
+Amrapali danced for him. "No wonder the Licchavis are proud of her," the stranger thought, mesmerized. "We don't have a dancer to equal her in all Magadha."
 
-"No," Amrapali replied firmly. "My heart belongs to Vaishali. I cannot betray my people."
+When the dance was over, Amrapali asked, "Where do you stay in Vaishali?"
+"I am a stranger here. I have not yet found a place to stay."
+"Then you are welcome to stay at my house."
+"You are very generous, Amrapali," he smiled. 
 
-Bimbisara gazed at her in deep admiration, called off the war, and returned to Magadha, while Amrapali remained behind, her mind troubled by the futility of human ambition and war.
+The stranger stayed with her in secret for a week. Then, one evening, he said, "Amrapali, I must take your leave. I have to go back. I love you, Amrapali. Why don't you come away with me?"
+Amrapali laughed. "You amuse me. You are a total stranger. I don't even know your name!"
+"I am Bimbisara."
+Amrapali gasped, stepping back. "What! The dreaded king of Magadha!"
+"Yes."
+"There is no room for love in the hearts of ambitious men!" Amrapali flared up angrily. "How can you talk of love, when this very moment because of you hundreds of men are dying on the battlefield?"
 
-Months later, news reached Vaishali that Lord Buddha was camping in the nearby grove of Kotigrama. Curiosity drawing her, Amrapali rode her chariot to the grove and sat quietly among the crowd listening to the Master's discourse.
+"If I give up my ambition to conquer Vaishali and cease hostilities forthwith, will you marry me?" Bimbisara pleaded. 
+"No! I cannot!"
+"Why not, Amrapali? Don't you love me?"
+"I belong to Vaishali! I have given my pledge," she replied firmly. 
 
-*"Out of desire is born grief; out of desire is born fear,"* Buddha taught in his soothing voice. *"He who frees himself from desire is free from sorrow."*
+Without another word, the dejected Bimbisara turned and left into the night. 
+Amrapali could not understand her own feelings. "Why do I feel sad to see the dreaded enemy of Vaishali go?" she wept. 
 
-His words touched Amrapali's soul, filling her heart with a deep, unprecedented peace. Day after day, she visited Kotigrama to absorb his wisdom.
+A few days later, the young nobles returned triumphantly. "Amrapali, we are back! That coward, Bimbisara, suddenly called off the battle."
+"Why did he do it? Was it for love of me?" Amrapali thought, her heart heavy. 
+"Amrapali, we missed you. We would like to see you complete the dance you began when we left," they requested. 
+"You shall, in a moment."
 
-When the time came for Buddha to leave Vaishali, Amrapali stepped forward, fell at his feet, and requested, "Lord, will you honor me by partaking of a meal at my house tomorrow?"
+But as Amrapali danced, the magic was gone. 
+"What is wrong with her today?" "Her movements are lifeless," the nobles muttered. As they left for their homes, they agreed, "Amrapali's performance was a failure today. It was evident that her heart was not in it!"
 
-"I will come, my child," Buddha accepted softly.
+Meanwhile, Amrapali sat brooding alone. "What is the matter with me? Why did I find no joy in dancing for the nobles today? Why do the presents that once pleased me, now disgust me? Why do I feel lonely... lost... afraid...?"
 
-As Amrapali drove home joyfully, she encountered the chariots of the Licchavi nobles speeding to Kotigrama. "Amrapali, we heard Lord Buddha has arrived!" the princes called out. "We are going to invite him to dine at the palace tomorrow."
+The next morning, as she walked in her garden to clear her head, she saw a young monk carrying a bright pink flower. 
+"What a beautiful lotus! How fresh it is!" she exclaimed. "Will you sell that lotus to me, my lad?"
+"Pardon me, lady. This lotus is not for sale," the young monk replied politely. "Haven't you heard? Lord Buddha has come to Vaishali and is camping at Kotigrama. I am taking this flower to him."
 
-"You are too late," Amrapali smiled proudly. "The Master has already agreed to dine at my home tomorrow."
+As the boy went his way, Amrapali felt a sudden surge of hope. "Lord Buddha! The enlightened one who knows the cause of suffering! I will go to him."
 
-The nobles offered her bags of gold to relinquish the honor, but Amrapali refused. "Even if you offer me the entire kingdom of Vaishali, I will not give up the privilege of serving the Lord!"
+She immediately went to Kotigrama and sat among the crowd, listening to Lord Buddha with rapt attention. 
+"Out of desire is born grief. Out of desire alone is born fear," Buddha preached calmly. "Free yourself from desire and the grief and the fear will wither away."
+Amrapali began to experience a new kind of joy. "His words fill me with peace! His voice is so soft! His words so soothing!"
 
-The next day, Lord Buddha and his monks arrived at Amrapali's residence. After serving them a wholesome meal, Amrapali bowed low before the Master. "Lord, permit me to grant my mango grove and mansion to the Sangha to be used as a monastery."
+She went to Kotigrama daily to listen to his sermons. One day, she thought, "His very presence stills my restless mind. How I wish he would visit my home and fill it with his being! But will the lord visit the house of an unworthy person like me?"
 
-"So be it, child," Buddha blessed her.
+Soon it was time for Lord Buddha to leave Vaishali. "When will I see you again, master?" Amrapali wept silently as he walked away. 
+Even after Lord Buddha had left, Amrapali continued to visit Kotigrama every single evening. "This is where the master used to sit. I can still feel his presence here."
+Many months passed, and Amrapali patiently waited for the return of Lord Buddha. "My master will come to Vaishali again. Perhaps today, perhaps tomorrow, but he will come."
 
-Stripping off her jewels and silk robes, Amrapali renounced her wealth, fame, and worldly life. She was ordained into the Sangha as a nun, spending the rest of her days in quiet meditation and finding the ultimate freedom of Nirvana.
+One evening, she arrived at Kotigrama and gasped. "My master is back! I can't believe my eyes."
+She ran up to Lord Buddha and fell weeping at his feet. 
+"Arise, my child," Buddha smiled gently. 
+And before she could stop herself, the words poured out. "Master, will you honour me by eating at my house tomorrow?"
+"I will come, my child," Buddha agreed. 
+
+Amrapali sped homewards to Vaishali in her chariot to prepare for the coming of her master. Suddenly, a few chariots carrying the nobles of Vaishali came charging from the opposite direction, blocking her path. 
+"Where are you speeding to?" a noble asked. "We heard that Lord Buddha has arrived. We are off to invite him to eat with us at the palace tomorrow."
+"But the lord has already agreed to dine at my house tomorrow," Amrapali declared proudly. 
+"We have been forestalled!" a noble frowned. "Not all is lost. Not yet. She can easily be bought off."
+He turned to her. "Amrapali, if you let Lord Buddha have his first meal at Vaishali with us, we will give you all the gold you want."
+"No. Even if you offer me the entire kingdom of Vaishali, I won't give up the honour of serving the lord!" Amrapali retorted, driving away. 
+
+"What shall we do?" the nobles grumbled. 
+"We will go to the lord. He cannot refuse the nobles of Vaishali."
+Later, at Kotigrama, the nobles bowed to the Buddha. "Lord, please honour us by dining with us tomorrow."
+"I am sorry, I can't," Buddha replied peacefully. "I have already agreed to go to Amrapali's house tomorrow."
+
+The next day, Lord Buddha went to Amrapali's house. 
+"I have come, Amrapali."
+"Lord, you do me great honour," she bowed. 
+
+Later, as she served him the meal, she asked, "Lord, why do I feel such immense joy as I serve you?"
+"Amrapali, you have finally begun to know the joy of giving," Buddha smiled. 
+
+After the meal, Amrapali knelt before him. "Lord, permit me to grant my garden and this house to the Sangha."
+"So be it, child. It could be used as a monastery."
+Then, leaving behind her the worldly life, her riches, and its heartaches, Amrapali became a devoted follower of the Buddha. She began to lead a life of renunciation, finding at last the eternal peace of mind she had craved.

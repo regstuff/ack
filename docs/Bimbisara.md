@@ -1,57 +1,114 @@
 # Bimbisara: Model King of Magadha
 
-Nearly two thousand five hundred years ago, Bhattiya, the King of Magadha, returned to his capital at Rajagriha in defeat after a grueling battle against Brahmadatta, the ambitious King of Anga. As the weary king entered the palace gates, his fifteen-year-old youngest son, Prince Bimbisara, ran to welcome him. 
+Bhattiya, the ruler of Magadha, was returning to his capital at Rajagriha after a fierce battle with Brahmadatta, the King of Anga. Bimbisara, his youngest son, ran out to meet him. 
+"Father! You're back..." Bimbisara cried happily. 
+"Yes. But we lost the battle, my son," King Bhattiya sighed. 
+Young Bimbisara clenched his fists. "One day I'll teach that tyrant a lesson he'll never forget," he vowed to himself. 
 
-Seeing his father's bowed head, Bimbisara swore a silent oath: *One day, I will teach that tyrant Brahmadatta a lesson he will never forget.*
+The next morning, King Bhattiya stared thoughtfully into the mirror. "Another gray hair! It's time to think of my successor!"
+"So soon, my lord!" his queen exclaimed. 
+"Yes, my queen. It would be folly not to do so."
+"Who do you think should be the crown prince? Isn't it the birthright of the eldest? Or is there a choice?"
+"Well, if there is a choice, then the bravest and the most intelligent should be chosen," the king decided. 
 
-A few years later, King Bhattiya looked into his mirror, noticed his graying hair, and decided it was time to choose a successor. Rather than automatically appointing his eldest son, Bhattiya resolved to test the intelligence and courage of his four sons to determine who was best suited to rule.
+A few days later, the king called his four sons to him. "You learn many things from your tutors. I want to test the skills you have acquired. You have to eat the *kajli* (sweet) in this basket and drink some of the water sealed in the earthen pot... without opening the basket or breaking the pot. That will show me what you have learnt from your lessons."
 
-Calling his sons, the King placed before each of them a sealed earthen pot filled with water and a tightly woven basket containing *kajli*, a delicate sweet dish. "You must consume the sweet and drink the water," Bhattiya instructed, "without breaking the earthen pot or opening the basket."
+Each of the princes was taken to a specially allotted room to take the test. 
+Soon, the first three princes gave up. "It cannot be done!" the eldest complained. "It's an impossible task, sire."
+But Bimbisara was taking a long time. "What keeps him so long?" they wondered. 
+Inside his room, Bimbisara thought carefully. "If you can't get over an obstacle, go through it." He realized the basket was woven loosely enough for ants, so he created a trail to extract the sweets. Then, he wrapped a cloth around the unglazed, porous earthen pot. "What a tedious way to eat a snack! Anyway, by now the cloth must have absorbed some of the water from the pot." He squeezed the wet cloth into his mouth. 
 
-The three elder princes inspected the sealed containers and gave up, declaring the task impossible. But Bimbisara reflected on his tutors' lessons regarding overcoming obstacles. Taking the basket, he shook it vigorously until the brittle sweet crumbled into fine powder and trickled through the weave onto a plate. Next, he wrapped a cloth around the porous earthen pot, allowing the cloth to absorb the water, which he then squeezed into a cup and drank.
+"I have done it!" Bimbisara announced as he emerged. 
+The king and the princes rushed into his room. "No! It can't be true. How did you do it?" his brothers asked in disbelief. 
+"Simple! Don't you remember the lesson on tackling obstacles?" Bimbisara smiled. 
+"Yes. But that was only for getting through forts!"
+"Not earthen pots! Nor baskets!" 
 
-When the King and the elder princes entered Bimbisara's room, they were astonished to find both containers intact and the task completed.
+"Bimbisara, I'm glad you used your intelligence!" the king praised. "Go now, all of you, your dinner is waiting."
+A grand feast was spread out in the dining hall. As the hungry princes entered, they did not know that this was yet another test—a test of their courage. Just when they were about to begin, fierce, snarling hounds were unleashed into the room! 
+"Woof! Woof!" The three elder brothers screamed in terror and fled. 
+But Bimbisara remembered his lessons. "Stay still. Don't move. Discretion is the better part of valour," he told himself. He calmly held out a bowl of food. The hungry dogs settled down to eat, while Bimbisara peacefully went on with his meal. 
 
-That evening, Bhattiya devised a second test—this time to test their courage. He invited his four sons to a grand banquet. As the princes sat before their meal, the doors flew open, and a pack of ferocious, hungry hounds rushed into the dining hall. The three elder brothers panicked and fled. But Bimbisara remained calm, picked up a bowl of food, and held it out gently to the hounds. Tamed by his fearlessness and kindness, the dogs settled down peacefully beside him.
+The very next day, the king called an assembly of his ministers. "Though the youngest, Bimbisara has proved to be the best. I appoint him my successor."
+Soon, Bimbisara was anointed as the crown prince. 
+"Bimbisara, what would you like to do most when you become the king?" his father asked. 
+"To conquer Anga and subdue Brahmadatta," Bimbisara replied instantly. 
+"Don't be in a hurry, son! Brahmadatta is strong, and you should bide your time."
+"I will make a move only when I am fully prepared," Bimbisara promised. 
 
-Delighted by his youngest son's sharp intellect and cool courage, King Bhattiya summoned his council the next day and anointed fifteen-year-old Bimbisara as the Crown Prince and King of Magadha. 
+Before long, King Bhattiya passed away, and Bimbisara, who was barely fifteen, ascended the throne. Though young in years, he had a clear plan to expand the Magadhan empire. He first conquered the neighboring states. However, there were frequent skirmishes with the powerful Lichchhavi republics. 
+At Vaishali, the leaders of the Lichchhavis met under their chief, Raja Chetaka. "Bimbisara threatens war! But I do not want the king of Magadha for an enemy," Chetaka decided. 
 
-When his ministers urged him to attack Anga immediately, Bimbisara displayed wisdom beyond his years. "I will make no move until Magadha is fully prepared," he declared.
+Seeking an alliance, Raja Chetaka called on Bimbisara. "I come to offer you the hand of my daughter, Chellana."
+"And I accept it with pleasure," Bimbisara replied. This marriage significantly increased the power and prestige of the Magadhan empire. 
 
-To strengthen his kingdom, Bimbisara forged strategic matrimonial alliances. He married Princess Chellana, the daughter of Raja Chetaka, chief of the powerful Lichchhavi Republic of Vaishali, elevating Magadha's prestige across Northern India.
+Years later, Bimbisara received joyous news. "Chellana, you have made me happy and proud! May the prince be Ajatashatru!" (*Ajatashatru* means 'one whose enemy is not born—hence, one who is ever victorious'). 
 
-When Queen Chellana became pregnant, a royal astrologer privately warned her of a dark omen: the child she carried was destined to take his father's life. Overcome with dread for her husband's safety, Chellana secretly gave birth in isolation while Bimbisara was on a state tour and abandoned the newborn infant under a banyan tree in the wilderness.
+As the day of the birth drew near, Bimbisara had to leave on a tour of the provinces. "I come to take leave of you, my queen. When I return, my prince in your arms will welcome me!"
+A few days later, on his way back to his capital, Bimbisara heard a feeble wail coming from the bushes near the road. *Wa...a, Wa...a.*
+He found an abandoned newborn baby lying in the dirt. "The poor thing is bleeding! Who could have abandoned such a sweet baby?" Bimbisara gently picked up the child. "Why do I feel so powerfully drawn towards him? Does every new father feel like this when he looks at any child?"
+He handed the baby to his guard, Sukesha. "Take good care of him. He shall be a playmate to my prince!"
 
-Returning from his tour, Bimbisara spotted the abandoned, crying infant in the woods. Moved by deep paternal affection, he picked up the bleeding baby, wrapped him in his royal mantle, and brought him to the palace. 
+As soon as he reached the palace, Bimbisara rushed to the queen's apartments. "Where is my prince?" he asked eagerly. 
+Queen Chellana looked terrified. "He... he is sleeping... my lord! You must not leave my side."
+But Bimbisara rushed into the nursery. "The prince! The prince is not in his cradle!" he cried. 
+"Sukesha rushed out of the nursery! The prince has disappeared!" the guards reported. 
 
-Weeping in remorse, Chellana confessed her deed. But Bimbisara embraced her gently. "Even if he is destined to take my life, he is my son. I shall raise him with all my love." He named the prince **Ajatashatru** ("One whose enemy is not yet born") and ordered that the child should never learn of his temporary abandonment.
+Bimbisara turned to his weeping wife. "Chellana, you knew that the prince was not in there, didn't you? Look into my eyes and answer me."
+"Forgive me, my lord," Chellana sobbed. "It's true I abandoned our son, but I did it to save your life. Ever since the day I was with child, a strange anxiety and restlessness had gripped me. I consulted a soothsayer. He divined that the child whom I carried might one day take your life! To save my life, I had to make a choice. What have I done! Oh! What have I done!"
 
-Years passed, and Magadha flourished. One day, while touring the outskirts of Rajagriha, Bimbisara noticed a serene young monk sitting under a tree. It was Prince Gautama of Kapilavastu (Gautama Buddha), who had recently renounced his royal heritage. 
+"Don't grieve, Chellana," Bimbisara said gently. "The child I found by the wayside will take the place of the one we lost!"
+"You found an infant? On the wayside? Where is he?"
+Bimbisara ordered the rescued child to be brought in. When the baby was placed in Chellana's arms, she gasped. "This—this is our son! I know. Look, my robe! The one I wrapped him in!"
+"My child! Thank God you are alive!" Bimbisara smiled through his tears. "No harm should ever come to him, and he should never hear of this."
 
-Impressed by Gautama's radiant presence, Bimbisara offered him half the kingdom of Magadha. But Gautama smiled gently. "Such kingdoms are not for me, O King. I have walked away from one to seek the root cause of human suffering and the way to end it."
+Years passed. Ajatashatru grew into a strong, fierce young prince. Bimbisara watched him practicing sword fighting. "Ajatashatru is destined to be a great warrior one day!" the king thought proudly. "May his sword never be used against you, the king!"
 
-Bimbisara bowed before the Sakya prince. "When you find the path to end misery, pray return to Rajagriha and teach us."
+One day, as Bimbisara took a round of the city, he saw a radiant young ascetic. "Who is that ascetic? His very looks seem to spread peace and goodness."
+"He is Gautama, the Sakya prince of Kapilavastu," a courtier replied. 
+Bimbisara walked up to the young ascetic. "These robes of an ascetic do not befit you, Gautama. Come with me, I'll make you the king of half of Magadha."
+"Such kingdoms are not for me. I have already walked away from one!" Gautama replied peacefully. "I seek the cause of the misery which I see all around... and the way to end it."
+"When you learn the way to end misery, pray come back and teach us," Bimbisara requested. 
 
-Soon after, King Brahmadatta of Anga launched fresh raids on Magadha's borders. Bimbisara dispatched Prince Ajatashatru to lead the Magadhan army. Displaying brilliant military tactics, Ajatashatru defeated the forces of Anga and slew Brahmadatta on the battlefield. Bimbisara rewarded his son by appointing him Regent of Anga.
+Bimbisara turned back to matters of state. "Reports from Anga are disturbing, sir," his ministers informed him. "Brahmadatta has once again begun to harass our people on the borders!"
+"Brahmadatta should be taught a lesson he will never forget! The very words I uttered many years ago!" Bimbisara declared. He turned to his fierce son. "We shall march on Anga, and you, Ajatashatru, shall lead the forces."
 
-However, dark forces were at work. Devadatta, the ambitious and envious cousin of the Buddha, sought to build his own influence by manipulating the young prince. Traveling to Anga, Devadatta flattered Ajatashatru. "You are a brilliant conqueror," Devadatta whispered. "Why remain a mere governor? Take the throne of Magadha by force before it is too late!"
+Ajatashatru carefully planned his tactics and utterly crushed the Anga army, slaying King Brahmadatta. 
+"You have proved yourself a clever soldier, my son!" Bimbisara praised him. 
+"If this victory is because of me, the land I won should be mine," Ajatashatru demanded boldly. 
+"Be my regent here in Anga, then," Bimbisara agreed generously. 
 
-Poisoned by Devadatta's counsel, Ajatashatru sneaked into King Bimbisara's bedchamber at night with a drawn sword. But royal guards disarmed the prince. 
+Years later, the Buddha returned to Rajagriha, fulfilling his old promise to Bimbisara. Bimbisara became a devoted follower of the Buddha's peaceful teachings. 
 
-When Bimbisara awoke and saw his son in chains, he immediately ordered his release. "If you desire the throne, my son, it is yours," Bimbisara said gently. "This drama was unnecessary."
+However, the Buddha had a wicked, ambitious cousin named Devadatta, who aspired to take over leadership of the monks. Realizing he needed royal patronage to rival the Buddha, Devadatta went to Anga to manipulate the young, hot-headed Ajatashatru. 
+Through flattery and dark advice, Devadatta gained absolute control over Ajatashatru's mind. "I would help you to the throne of Magadha!" Devadatta whispered. "You cannot remain the governor of a distant province forever! How long will you wait, Ajatashatru? Life is short. Take the reins of the kingdom in your hands—by force if necessary."
 
-Mistaking his father's unconditional love for weakness, Ajatashatru proclaimed himself Emperor and confined Bimbisara to a fortress cell. Devadatta continued to whisper in the young ruler's ear: "As long as the old king lives, nobles may revolt. Have him executed!"
+A few weeks later, Bimbisara woke up in the middle of the night to find a man standing over his bed with a drawn sword. It was Ajatashatru!
+The guards rushed in and seized the prince. "Sir, the prince is guilty of a heinous crime! He deserves the most severe punishment!"
+"Release the prince!" Bimbisara ordered calmly. He looked at his son. "What is it you want, Ajatashatru? The kingdom—before it is too late?"
+"The kingdom is yours, if you want it," Bimbisara said sadly. "This drama was not necessary."
 
-In his prison cell, Bimbisara bore his confinement without bitterness, finding solace in the gentle memory of the Buddha's teachings. 
+Mistaking his father's profound love for cowardice, Ajatashatru proclaimed that the emperor was ailing and began ruling in his place. Bimbisara was confined to his chambers. 
+"This is intolerable!" Queen Chellana wept. 
+"No, dear queen! Wisdom should dawn from within," Bimbisara comforted her. 
 
-Months later, Ajatashatru's queen gave birth to a baby boy. As Ajatashatru held his newborn son in his arms, a sudden, overwhelming surge of paternal love flooded his heart. Tears filled his eyes as he realized the depth of a father's devotion. *If my love for my son is this immense,* Ajatashatru thought in a flash of horror, *how deeply must my father have loved me when I was born!*
+But Devadatta was not satisfied. "Ah! Now you are the ruler," he told Ajatashatru. "But how safe are you? All the nobles and soldiers would turn against you at a sign from Bimbisara!"
+To safeguard his position, Ajatashatru threw his own father into a dark prison cell and ordered that no one could visit him without permission. 
 
-"Cancel my orders!" Ajatashatru shouted, rushing out to reverse the execution decree he had signed earlier.
+Months passed. Bimbisara languished in prison. 
+"Ajatashatru, when will I hear people hailing you as Maharaj?" Devadatta mocked. "Soon you will become a father. Your child will grow up to be a young prince. And you will still be a prince—though old enough to be a king! Issue the order, Ajatashatru. Have the old king executed and rule in your own right!"
+"I shall be guided by your advice," the corrupted Ajatashatru agreed. He sent orders to the prison warden to execute his father immediately. 
 
-Just then, a messenger handed him two documents: one announcing the birth of his son, and the second from the prison warden reporting that King Bimbisara had just been executed in accordance with his earlier orders.
+Later that very day, an officer rushed to Ajatashatru with joyous news. "Take this, O bearer of glad tidings! A son is born to me today!"
+As Ajatashatru held the message, a sudden, overwhelming wave of love for his newborn son flooded his heart. "How strong is this love for my son coursing through my heart, though I have yet to see him," he marveled. 
 
-Ajatashatru collapsed to the floor, weeping in uncontrollable agony. "Oh no! What have I done? I have murdered my own father!"
+Then, a terrible realization struck him like lightning. "Suddenly... the King, my father—he too, must have felt the exact same way when he first heard of my coming! He loved me this much! And I, his son, have given orders to execute him!"
+"No! My father shall not die! I will reverse my orders!" Ajatashatru screamed, rushing to stop the execution. 
 
-When Devadatta entered the hall to offer congratulations, Ajatashatru turned upon the monk in fury. "Wretch! Out of my sight! I shall never set eyes on you again as long as I live!"
+But the realization had come too late. As he ran out, a second messenger arrived from the prison. It was a letter from the warden, reporting that the execution orders had already been carried out. Bimbisara was dead. 
 
-Banishing the evil counselor, Ajatashatru ascended the throne in deep repentance, spending his reign carrying out his father Bimbisara's vision of expanding Magadha into a mighty, united empire.
+"Oh, no! I have put my own father to death! Fie on me!" Ajatashatru collapsed in absolute agony and remorse. 
+Just then, a guard announced, "Devadatta wishes to see you, sire."
+"What! That wretch!" Ajatashatru roared. "Tell him I shall not set eyes on him again as long as I live!"
+
+Ajatashatru formally ascended the throne and went on to make Magadha the supreme power in ancient India, fulfilling the grand dreams of his father. But he lived the rest of his life haunted by his terrible sin. It was, however, the original vision of King Bimbisara—and the unconditional, forgiving love he bore his son—which had made the great Magadhan empire possible.
