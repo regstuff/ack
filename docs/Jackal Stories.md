@@ -1,56 +1,258 @@
-# Jackal Stories: Jataka Tales of the Sly and the Shrewd
+# The Jackal and the Rats
 
-The jackal has a bad reputation in the animal world. Devious, selfish, dishonest, and boastful, his aspirations are high, but his talents are few. He seldom repays a favour. These stories from the Jataka tales tell of the cunning of the jackal.
+One day, while roaming in the forest in search of food, a jackal suddenly spied a troop of rats. Their king was a huge bandicoot. 
 
-## The Jackal and the Rats
-While roaming in the forest in search of food, a jackal spied a troop of rats led by a huge bandicoot. Thinking it would be better to have a steady supply of food rather than just catching one, he hatched a plan. 
+"I could attack them. But then I'd catch only one and the rest would run away," the jackal thought. "If I'm clever, however, these rats could provide me with food for many days." 
 
-He stood outside their hole on one leg, with his mouth open, facing the sun. When the rats asked him why, he claimed he was a saint: he stood on one leg because the earth couldn't bear his weight, kept his mouth open to feed only on air, and faced upwards to worship the sun. 
+So he followed them to their hole. When the last of them had gone into the hole, the jackal stood outside on one leg, his mouth open and his face turned towards the sun. 
 
-Believing him to be a holy saint, the rats began to worship him every morning and evening. As they turned to leave after their worship, the jackal would swiftly swoop upon the last rat in the line and eat it. 
+A little later, when the rats came out again, they were amazed. "Why are you standing on one leg?" they asked him. 
 
-This went on for days until the bandicoot noticed that his subjects were dwindling while the "saint" was growing plumper. Suspecting the truth, the bandicoot stayed at the back of the line the next evening. When the jackal sprang, the bandicoot was ready. He dodged the attack, dug his teeth into the jackal's throat, and killed him. The rats had a grand feast that night.
+"If I stood on all four, the earth would not be able to bear my weight," the jackal lied smoothly. 
 
-## The Jackal and the Lion
-A hungry jackal offered to be the humble servant of a lion. The lion agreed, telling the jackal his only job was to watch from the mountaintop and report when he saw an elephant. He was to say, "Shine forth in all your might, my lord," and the lion would kill it, allowing the jackal to eat the leftovers.
+"Why do you keep your mouth open?" 
 
-The arrangement worked perfectly, and the jackal grew fat. However, as he grew fatter, he became less humble. He foolishly believed that the lion's strength came from the magic phrase itself. "Why work for the lion when I could kill elephants for myself?" he thought.
+"To take in air, my only food." 
 
-He begged the lion to let him kill an elephant, insisting that the lion just say the magic words. Amused, the lion agreed. When an elephant approached, the lion said, "Shine forth in all your might, jackal."
+"And why is your face turned upwards?" 
 
-The foolish jackal sprang at the elephant, but missed completely. The puzzled elephant simply walked over him, crushing the arrogant jackal to death. 
+"To worship the sun." 
 
-## The Clever Jackal
-A group of rogues were having a grand party. When the meat ran out, one braggart grabbed a club and swaggered off to the charnel-grove, boasting he would kill a prowling jackal for meat. 
+The rats were deeply impressed. "How lucky we are to have a saint in our midst! We shall worship him every morning and evening," they decided. 
 
-At the grove, the man pretended to be a corpse, holding his club ready. A pack of jackals arrived, but their clever leader noticed the smell of a living man and spotted the club. 
+"It has worked! He really thinks I am a saint!" the jackal chuckled inwardly. 
 
-To test his theory, the clever jackal crept up to the man and gave the club a slight tug with his teeth. The man, thinking it was a bandicoot, tightened his grip. The jackal immediately let go with a jerk. The startled rogue jumped up and flung his club, but missed entirely. Shamed by his failure, the braggart went home to sleep.
+The next morning, the rats came out. "Ah! Here they come. I must pose again for them." Their worship over, the rats trooped away. 
 
-## The Jackal and the Magic Spell
-A jackal secretly overheard a family priest practicing a secret magic spell. The jackal mastered it and ran into the forest, using the spell to bring all the four-footed animals under his control. He declared himself King Sarvadata, took a she-jackal as his queen, and rode on a lion that stood on two elephants. 
+...While the jackal swiftly swooped upon the last of them and ate him up! 
 
-Drunk on power, the jackal-king marched on the city of Varanasi with his massive animal army and demanded the king surrender. 
+This went on for many days. Then the bandicoot noticed something. "For all his living on air, how plump this saint has become! And my subjects are fewer! Could the jackal...? I'll find out." 
 
-The king's family priest, knowing it was the jackal who stole his spell, went to the city walls. He taunted the jackal, saying the noble lions would never obey him. Furious, the jackal commanded the lions to roar with all their might to prove his power. 
+So that evening as the rats were ready to set out, the bandicoot instructed them, "Today all of you go ahead. I'll come out last." 
 
-When the lions roared, the terrifying sound panicked the elephants. They shook off the lion they were carrying, and the jackal and his queen crashed to the ground. The animals stampeded in terror, trampling the arrogant jackal-king to death.
+"If my guess is correct, he'll pounce on me. I must be ready," the bandicoot thought. 
 
-## The Jackal and the Otters
-A jackal's wife craved some fresh Rohita fish. At the river, the jackal saw two otters dragging a huge fish. The otters were arguing because they couldn't decide how to divide their catch fairly. 
+The next moment the jackal sprang at him... but missed! "So this is your game! You rascal!" the bandicoot squeaked. 
 
-Seeing an opportunity, the jackal stepped in, claiming to be an experienced and fair judge. The otters gladly let him divide the fish. 
+The bandicoot dug his teeth into the jackal's throat and killed him. Back came all the other rats and they had a grand feast on their false saint.
 
-The jackal cut off the head and gave it to one otter, and gave the tail to the other. "This I shall keep as my fee!" he declared, and promptly ran off with the entire large, fleshy middle portion of the fish, leaving the foolish otters regretting that they hadn't trusted each other.
 
-## The Jackal and the She-Goat
-A jackal and his mate had eaten all the goats in a herd except for one wise she-goat who refused to leave her cave. 
+# The Jackal and the Lion
 
-The jackals hatched a plan. The she-jackal went to the goat's cave every day, pretending to be lonely and abused by her husband, trying to win the goat's friendship. Eventually, she tearfully told the goat her husband had died and begged the goat to help bury him. 
+A hungry jackal once suddenly came across a lion who was on his way home. 
 
-The goat agreed to follow her but remained cautious. As they approached the jackal's cave, the supposedly "dead" jackal opened his eyes to look at the plump goat. Seeing he was alive, the goat immediately realised it was a trap and ran back to her cave. 
+"What do you want?" the lion roared. 
 
-The jackals tried one last trick. The she-jackal went back to the goat, claiming her husband had miraculously come back to life and wanted to thank her. 
-The clever goat replied, "All right, I'll come—with an escort of two thousand dogs! Prepare enough food for us all!"
+"I cannot hope to escape. It would be wiser to play humble," the jackal thought quickly. "My lord, please let me be your humble servant," he pleaded. 
 
-Terrified at the thought of two thousand dogs, the she-jackal made excuses and fled. She and her mate ran far away from the mountains, never to be seen again.
+"All right. Follow me," the lion agreed. 
+
+"What luck! I'll never have to go hungry again," the jackal rejoiced. 
+
+When they reached the lion's den, the lion commanded, "If you do as I tell you, you will be well fed." 
+
+"Your word is my command, my lord." 
+
+"You will go to the top of the mountain each day and see if there are any animals roaming in the valley below. And if I see one, my lord? You will come and tell me about it. Then you will say: 'Shine forth in all your might, my lord.'" 
+
+He sped back to the lion. "I've seen an elephant. Shine forth in all your might, my lord," the jackal reported and fell at his feet. 
+
+The lion killed the elephant and ate his fill. Then, after he had eaten his fill, "You may take what's left." So the next day the jackal went to the mountain top. 
+
+As the days went by, the jackal grew fatter and fatter. But, alas! He grew less and less humble. One day he thought, "Why should I live on leftover food? I, too, am a four-footed creature! Why work for the lion when I could kill elephants and buffaloes for myself?" 
+
+He appealed to the lion. "My lord, I have lived for too long on what you kill. I would like to eat an elephant I have killed myself." 
+
+The lion was silent for a while. "What a foolish idea! He'll be killed himself!" he thought. 
+
+"O jackal, only lions can kill elephants. Give up this silly idea. And be happy to eat what I kill." 
+
+"Please, my lord. Don't deny me this chance. I'll wait here, while you go to the mountain-top. When you see an elephant, come to me and say, 'Shine forth in all your might, jackal,' and I'm sure to kill it." 
+
+At last the lion gave in. "All right. I'll do it." 
+
+A little later, the lion came back. "I have just spied an elephant coming this way. Shine forth in all your might, jackal." 
+
+The jackal nimby bounded away on the trail of the elephant. "I'll catch him by the throat and kill him." 
+
+He sprang at the elephant... but missed him! The puzzled elephant just walked over him. And that was the end of the foolhardy jackal.
+
+
+# The Clever Jackal
+
+A group of rogues were once having a grand party. Towards midnight, one of them complained, "Can I have some more meat?" 
+
+"You can have more wine if you like, but there's no meat left," another replied. 
+
+"What! No meat! But I must have some!" the drunk rogue insisted. "I'll go to the charnel-grove, kill a prowling jackal, and bring you its meat." 
+
+Club in hand, the braggart swaggered off. When he reached the grove, he thought, "When a jackal comes near, I'll kill him with my club." He lay down, pretending to be a corpse. 
+
+A little later, a pack of jackals came by. "Look, there's a corpse. Come on!" 
+
+"Wait! Let me make sure we're safe," an older, wiser jackal cautioned them. 
+
+"The smell of a living man! Just as I thought! He is only pretending to be dead," the clever jackal realized. 
+
+"Just then he noticed the club. 'He is probably waiting to kill one of us.' Wait here. I'll take care of the rascal," he told the pack. 
+
+He crept up to the man... caught the club with his teeth... and gave it a slight tug. 
+
+"It must be a bandicoot! I'd better tighten my grip," the man thought. 
+
+The next moment the jackal let go of the club with a jerk! The startled rogue jumped to his feet, flung his club at the jackal... and missed! 
+
+"I dare not face my friends after my vain boast. I'd better go home and sleep," the rogue muttered, walking away in shame. 
+
+The next moment, to his surprise, the jackal stood before him. "Ho! Brahman, you couldn't have mastered the spell better than I!" the jackal mocked, and off he ran. The rogue chased him, but the jackal was too fast.
+
+
+# The Jackal and the Magic Spell
+
+In a secluded spot in a forest, the family priest of Brahmadatta, King of Varanasi, was once repeating a secret spell. A jackal lying near by pricked up his ears. "If I listen carefully I, too, can master that." 
+
+A little later the Brahman got up. "There! I've mastered it." 
+
+"And off he ran," the jackal thought, having learned the spell. 
+
+The jackal escaped deep into the forest. "I'll first get married and then, using the spell, I'll bring all the four-footed creatures of the forest under my sway." 
+
+He soon found himself a she-jackal. "If you become my wife you shall be queen of all the animals of the forest." She agreed. 
+
+Later he uttered the spell and all the animals began to flock towards him. They seated the jackal and his wife on a lion which stood on two elephants. 
+
+"You are our master, O mighty one! You are our king!" they cheered. They conferred a title on the jackal and bowed to him. "Hail Sarvadata, chosen king of the animals!" 
+
+All this went to the jackal's head. "My subjects, we shall capture the city of Varanasi! We shall camp here and send a message to the king." 
+
+When the king received the message, his family priest was with him. "'Surrender your kingdom or die fighting for it,' he says. He has struck terror everywhere. His camp covers an area of thirty-six miles! Who is this animal?" the king wondered. 
+
+"He is Sarvadata, the jackal-king. Leave him to me. I'll find a way of defeating him," the priest assured him. "All right. May you be successful." 
+
+"I must first find out what he intends to do." The priest went out to the city walls. "O Sarvadata, how do you plan to take this city?" 
+
+"I will make the lions roar and create panic and chaos among the people. Then I will march into the city," the jackal boasted. 
+
+"Oh! So that's it!" the priest chuckled. "Impossible! These noble creatures will never obey a common jackal." 
+
+"Don't brag. Get him to roar—if you can," the priest taunted. 
+
+"That's what you think! The lions will all obey me. Even this lion on whose back I sit will roar. Obey your king! Roar with all your might!" the jackal commanded. 
+
+*GRR-RR! GRR-R-R!* 
+
+The lion roared and roared. Terrified, the elephants shook off the lion. The jackals crashed to the ground. 
+
+Seeing the elephants run amuck, all the animals broke into a stampede and ran helter skelter. In the stampede, the jackals were trampled to death. 
+
+That was the end of King Sarvadata who had dared to dream of conquering Varanasi.
+
+
+# The Jackal and the Otters
+
+A jackal's wife once wanted to eat some fresh Rohita fish. Promising to bring it for her, the jackal went to the river. 
+
+"I've promised to bring her the fish. But how am I going to do it?" he wondered. 
+
+Just then he saw two otters dragging along a huge Rohita fish. "This fish should last us a long time," they said. 
+
+The jackal drew nearer. "Yes, but how shall we divide it?" one otter asked. 
+
+"If I divide it, I'll have to give him the larger share," the other otter thought. 
+
+"You divide it." 
+
+"No, you divide it." 
+
+"Here's my chance! They're sure to ask me to divide it for them," the jackal thought. 
+
+"What's the matter, friends?" he asked smoothly. 
+
+"This fish was caught by both of us. We cannot decide how to divide it. Will you do it for us?" 
+
+"Just as I expected! Certainly! You can leave it to me. I've settled many cases before and settled them fairly," the jackal boasted. 
+
+The jackal then cut off the head and the tail of the fish. "You take the head... and you the tail. Now let's see how he'll divide the rest." 
+
+"And before their very eyes he ran off with the best portion of the fish!" 
+
+"Fools! This could be your last meal," the jackal mocked as he ran. 
+
+"There goes our delicious fish!" one otter cried. 
+
+"If only we had trusted each other instead of inviting an outsider to interfere!" the other otter lamented. 
+
+Meanwhile, the jackal returned home to his wife, bringing the best part of the fish, proving himself a very clever thief indeed.
+
+
+# The Jackal and the She-Goat
+
+Long ago, in a cave on the slopes of the Himalayas, there lived a herd of wild goats. One day, as a jackal and his mate were prowling about for food, they saw the goats grazing. 
+
+"Come! Let us kill one of them," the she-jackal suggested eagerly. 
+
+"Wait! If we are clever, we'll have food enough for many months," the jackal replied. 
+
+They waited till the goats began to wander apart as they grazed. "Let's follow that one till he is far away from the others." 
+
+A few hours later... "There! I've killed him. Now help me drag him to our cave," the jackal told his mate. 
+
+Many months passed and, one by one, the goats were eaten by the jackals. "The only one left was a wise she-goat," the she-jackal observed. "I dare not go out. The jackals are about again!" the she-goat thought, hiding in her cave. 
+
+"That she-goat seems to be wise to us. She does not come out at all," the she-jackal said in frustration. 
+
+"The jackal had an idea. You go alone every day and try to win her confidence. When she begins to trust you I will lie outside our cave and pretend to be dead, and you... bzz... bzz..." he whispered his plan to her. 
+
+"There's no harm in speaking to her from inside. She may be innocent," the she-goat thought when the she-jackal approached. 
+
+Eager to carry out the plan, the she-jackal hastened to the goat's cave. "O wise goat, do you live here all alone? It's the wife of the jackal! Please don't be afraid. I've come to make friends with you. Please come out." 
+
+"No! I don't trust you. Go away. You killed all my relatives," the she-goat retorted from inside. 
+
+"It was my husband, not me. If you don't trust me, you needn't come out. But, please, don't refuse to talk to me." 
+
+"I am very unhappy. No one is willing to be my friend, because of my husband's evil ways," the she-jackal lied. 
+
+The kind-hearted goat felt sorry for the she-jackal. "Please don't say that. I'll be your friend." 
+
+As each day passed the she-goat's trust in the jackal increased, till one day... "Tomorrow we shall carry out the next part of our plan," the she-jackal thought. 
+
+The next day, she cried, "Oh, I am left all alone! My husband is dead. Please come and help me bury him." 
+
+"She can't be lying. He must really be dead," the she-goat thought. "Don't weep, my friend. I'll come with you." 
+
+As they were about to set out, however, the she-goat suddenly became doubtful. "Dead or alive, he's cruel and I'm afraid to come out," she said. 
+
+"And I had thought you were my friend! How unfortunate I am that I must bury my husband all by myself!" the she-jackal wept loudly. 
+
+"No! No! I cannot come. I'm afraid of him," the she-goat insisted. "But what harm can he do to you now that he is dead?" 
+
+"Friend, you walk ahead and show me the way. I'll follow," the she-goat suggested carefully. 
+
+A little later, they neared the jackal's cave. "Ah, footsteps! Here they come," the 'dead' jackal thought. 
+
+He forgot that he was supposed to play dead, and opened his eyes to look at the plump goat. 
+
+"He's alive!" the she-goat noticed, and ran for her life. 
+
+"The wicked wretch wants to kill me. They are both traitors!" she realized as she ran. 
+
+When she had gone, the she-jackal scolded her mate. "Humph! I thought you had won her confidence! I had! But you, my lord, had to be a fool and spoil it all." 
+
+The jackal was so crestfallen that his mate felt sorry for him. "Don't look so unhappy! I'll bring her again. This time, be on your guard." 
+
+"Ah! My friend, you have performed a miracle! As you came near him, my husband came to life again. He wants to meet you and thank you," the she-jackal returned to the goat's cave. 
+
+The ruse worked. But the she-goat had a plan of her own. "Dear friend, I've changed my mind. You'd better not come. Your cave might be burgled while you are away." 
+
+"No! Please don't bother. Some other time, perhaps," the she-jackal said nervously. 
+
+"But I want to come and... bring my friends to celebrate his miraculous recovery. I've invited an escort of two thousand dogs!" the she-goat announced cheerfully. 
+
+"Two thousand dogs! I've had enough of this goat," the terrified she-jackal muttered. "Then she ran for her life... till she reached her mate." 
+
+"Quick! We must run. Or else we'll make a meal for two thousand dogs!" she yelled. 
+
+"Two thousand dogs!" the jackal yelped in panic. 
+
+The jackal and his mate took to their heels, and they were not seen or heard of ever again.
