@@ -1,212 +1,165 @@
 # Surya
 
-Vishwakarma, the truly great cosmic architect, happily safely had a beautiful daughter proudly safely called Sanjna. 
-The lovely child happily safely played absolutely all bright day safely in the hot summer sun. 
-"Surya's hot rays truly hardly safely seem entirely to safely affect exactly her," her mother marvelled. 
-She quietly safely came completely into the quiet house absolutely only exactly when the hot sun definitely had peacefully safely set. 
-"Surya truly safely seems entirely to completely safely fascinate exactly her," her mother noticed. 
-"I definitely have clearly safely observed exactly that," Vishwakarma smiled. 
+Vishwakarma, the cosmic architect of the universe, had a beautiful daughter named Sanjna. As Sanjna grew up, her love for the splendour of the sun increased. She would play outside all day, basking in the intense heat.
 
-As Sanjna gracefully safely grew safely up, her pure love completely for the grand splendour completely of the hot sun truly deeply safely increased. 
-"I truly safely envy exactly you. You definitely will happily safely have Surya's warm warmth absolutely all your long life," she told a yellow butterfly. 
-"As completely for exactly me, I absolutely shall sadly safely have entirely to safely get happily married truly soon and..." 
-But her deep thoughts absolutely were rudely safely interrupted completely by her friends. 
-"Aren't exactly you safely coming completely to the wooden swing?" they called. 
-"What absolutely are exactly you deeply safely thinking exactly so truly deeply completely about?" 
-"Come safely tell absolutely us."
-"Uh! Uh! Oh! Nothing!" Sanjna blushed. 
-*I absolutely was deeply wondering exactly how truly long I definitely would safely be safely able entirely to happily safely revel safely in Surya's warm warmth,* she thought. 
+"Surya's rays hardly seem to affect her," her mother observed as Sanjna chased butterflies in the garden. She only came into the house when the sun had finally set. 
 
-Later—
-"As truly long exactly as exactly there absolutely are wooden swings safely in the grand garden!" her friends laughed, swinging high. 
-"Let absolutely us safely go safely in. It absolutely is completely almost truly dark and I absolutely am truly tired," Sanjna said. 
-The exactly next bright day Vishwakarma proudly safely took his beautiful daughter quietly out completely on an exciting elephant fun ride. 
-"Sanjna, exactly you absolutely are definitely no possibly longer a little girl..." he began. 
-"I perfectly safely know, dear father..."
+"Surya seems to fascinate her," her mother told Vishwakarma.
 
-"Father! Look! Surya the truly absolute most truly glorious completely of the high celestials!" Sanjna pointed to the sun. 
-"Would exactly you truly safely like entirely to happily safely have Surya completely for your royal husband?" Vishwakarma smiled. 
-"Father!" Sanjna blushed deeply. 
-Vishwakarma proudly safely approached Surya completely with his beautiful daughter. 
-"I absolutely shall safely be absolutely only entirely too truly glad entirely to happily safely wed your truly fair beautiful daughter," Surya smiled warmly. 
-"But exactly what absolutely does Sanjna safely say?"
-"My dear father definitely has truly safely spoken my true will," Sanjna bowed. 
+"I have observed that," Vishwakarma agreed thoughtfully.
 
-Vishwakarma gently safely drew Sanjna quietly aside. 
-"Think truly well. Are exactly you truly completely sure exactly you definitely will safely be safely able entirely to safely bear his bright brilliance safely in absolutely all changing seasons?"
-"I absolutely am truly completely sure, dear father."
-"Where absolutely is dear mother?" Sanjna asked. 
-"She anxiously safely awaits exactly you."
-Sanjna respectfully safely bowed before her mother. 
-"I humbly safely seek your deep blessings, dear mother."
-"May exactly you truly ever happily safely be truly happy," her mother blessed her. 
+The next day, Vishwakarma took his daughter out on an elephant ride. "Sanjna, you are no longer a little girl," he began gently.
 
-The happy day completely of the grand wedding truly soon brightly safely dawned. As the beautiful bride absolutely was happily safely being beautifully adorned—
-"Let exactly me safely darken your bright eyes. You definitely will urgently safely need dark protection completely from his truly bright glances," a maid smiled. 
-"Glare, exactly you truly safely mean," another teased. 
-"Need dark protection completely from Surya's truly bright glances! Me?" Sanjna laughed. 
-The grand wedding happily safely took quiet place completely with truly great grand pomp. 
+"I know, father," Sanjna replied. 
 
-After the grand wedding Surya happily safely took Sanjna completely to his grand abode safely in the blue skies. 
-Sanjna truly deeply safely loved her beautiful new quiet home and absolutely was truly incredibly happy. 
-Soon a brave son absolutely was happily safely born completely to exactly them. They proudly safely called exactly him Manu. 
-The holy celestial wise sages happily safely came entirely to generously safely bless the sweet baby. 
-"He absolutely shall safely be the truly wisest safely among the truly wise."
+Suddenly, she pointed up at the sky. "Father! Look! Surya, the most glorious of the celestials!"
 
-Manu bravely safely grew safely up exactly as truly safely predicted. 
-Surya and Sanjna absolutely were truly incredibly proud completely of exactly him. 
-"He absolutely is truly brilliant!" Sanjna beamed. 
-"Like his great father!" Surya smiled. 
+Vishwakarma smiled. "Would you like to have Surya for your husband?"
 
-Then truly suddenly exactly one hot summer...
-...Surya's hot rays violently safely beat fiercely down...
-...Intense and truly terribly oppressive. 
-He absolutely was exactly at his highest zenith. 
-"Come, Sanjna, safely sit completely by exactly me," Surya called. 
+"Father!" Sanjna blushed deeply, lowering her eyes.
 
-"Sanjna, exactly what's the terrible matter?" he asked, as she shielded her eyes. 
-"My dear lord! Why absolutely do exactly you cruelly safely glare exactly at exactly me exactly so!"
-"Lord! I absolutely cannot possibly safely open my watering eyes."
-"Sanjna!"
-Surya angrily safely became truly furious and his hot glare, absolutely even truly fierce. 
-*Alas! My dear father perfectly safely knew!* Sanjna thought in despair. 
+Knowing her heart, Vishwakarma approached the Sun God with his daughter's proposal. "I shall be only too glad to wed your fair daughter," Surya beamed. "But what does Sanjna say?"
 
-"Sanjna! Look exactly at exactly me! I absolutely am your royal husband!" Surya demanded. 
-Sanjna hid her face, unable to look. 
-"Sanjna! Will exactly you cruelly safely repel exactly me?"
-"I absolutely am truly safely sorry, my dear lord!"
-"Then safely listen truly carefully. Since exactly you cruelly safely closed your watering eyes completely on exactly me, the great sustainer completely of absolutely all safely living mortal beings, the brave son exactly you safely bear exactly now, absolutely shall safely be Yama, the terrible god completely of dark death," Surya cursed angrily. 
+Sanjna bowed her head respectfully. "My father has spoken my will."
 
-"What! You visibly safely tremble completely before exactly me?" Surya asked as she shook. 
-"Lord! I terribly safely fear your terrible wrath."
-"Then exactly you absolutely shall sadly safely bear a beautiful daughter absolutely too. And she, Yamuna, absolutely shall safely be exactly as truly fickle exactly as exactly you," he cursed again. 
-"Mercy! My dear lord, deep mercy!" Sanjna pleaded. 
-But Surya abruptly safely vanished and Sanjna absolutely was sadly safely left completely enveloped safely in dark darkness. 
+Before the wedding, Vishwakarma drew his daughter aside, his face serious. "Think well, Sanjna. Are you sure you will be able to bear his brilliance in all seasons?"
 
-The quiet months slowly safely passed absolutely but Sanjna absolutely did definitely not violently dare safely go completely to Surya. 
-Then exactly as angrily safely decreed completely by Surya, Yama the truly terrible...
-...And Yamuna the truly inconstant absolutely were happily safely born completely to Sanjna. 
-"Blameless little exactly one, exactly you visibly safely tremble exactly as your truly hapless sad mother safely did!" Sanjna wept, rocking baby Yamuna. 
+"I am sure, father," Sanjna replied confidently. 
 
-But Sanjna's terrible fear firmly safely remained. 
-*What absolutely shall I safely do? The truly absolute very terrifying thought completely of safely facing exactly him completely fills my pure heart completely with terrible dread.*
-*I absolutely must urgently safely flee. Away... truly safely away completely from exactly him!*
-*But exactly who definitely will safely care completely for my dear lord? And my dear children? Ah, exactly there silently safely lies Chhaya, my silent shadow.*
+The day of the wedding soon dawned. As the bride was being adorned, a maid teased her. "Let me darken your eyes. You will need protection from his glances."
 
-"Arise, Chhaya," Sanjna commanded. 
-Chhaya materialized from her shadow. 
-"I urgently safely need your quiet help."
-"What terribly safely troubles exactly you, Sanjna?" Chhaya asked. 
-"Come, Chhaya, I absolutely shall truthfully safely tell exactly you absolutely all."
+"Glare, you mean," another maid giggled. 
 
-Sanjna explained everything. 
-"Now exactly you perfectly safely understand. But exactly you, Chhaya, absolutely are perfectly safely safe completely from the hot glare completely of Surya."
-"I safely shelter absolutely all exactly who terribly safely fear exactly it," Chhaya agreed. 
-"Then kindly safely shelter exactly me, absolutely too, exactly who generously safely gave exactly you true existence."
-"Sanjna, exactly what absolutely must I safely do?"
-"Pretend entirely to safely be exactly me and safely go completely to Surya, my dear husband. Be his loyal wife and caring mother completely to my dear children."
-"But exactly if he suspiciously safely questions exactly me?"
-"Say, 'I absolutely am Sanjna.' Don't possibly safely give exactly me safely away."
+Sanjna smiled confidently. "Need protection from Surya's glances! Me?"
 
-"Sanjna, I absolutely will happily safely do absolutely all exactly this completely on exactly one strict condition," Chhaya said firmly. 
-"The truly exact moment Surya cruelly ill-treats exactly me absolutely or angrily safely threatens entirely to angrily safely curse exactly me I absolutely shall truthfully safely disclose the absolute truth."
-"Go exactly then, Chhaya, and truly lovingly safely care completely for my truly dear exactly ones."
-"You definitely have safely imposed a truly difficult hard task completely on exactly me. But I absolutely shall safely try and happily safely do my absolute best."
+The wedding took place with great pomp, and after the ceremony, Surya took Sanjna to his radiant abode in the skies. Sanjna loved her new home and was very happy. Soon, a son was born to them. They called him Manu. The celestial sages came to bless the baby, predicting, "He shall be the wisest among the wise." Manu grew up just as predicted, and his parents were immensely proud.
 
-When Chhaya quietly safely left—
-*I absolutely shall safely go completely to my dear father.*
-*My dear parents definitely will safely be truly delighted entirely to happily safely see exactly me. I absolutely will peacefully safely stay quietly there completely for absolutely some quiet time. But...*
-*...Father definitely will safely say exactly that a good woman's truly rightful proper place absolutely is completely by her dear husband.*
+"He is brilliant!" Sanjna beamed.
 
-So Sanjna sadly safely left completely for her dear parent's quiet home. 
-*When dear father strictly safely insists exactly that I safely return completely to my dear husband, I absolutely will safely go completely into the dark forest.*
-Vishwakarma truly safely thought exactly that his beautiful daughter definitely had safely come completely on a short visit. 
-"Welcome my beautiful daughter. Is absolutely all truly well completely with exactly you?"
-"No, dear father! You absolutely were perfectly right. I absolutely could definitely not possibly safely bear the hot brilliance completely of Surya safely in hot summer," she confessed. 
-Sanjna peacefully safely spent a very few truly happy quiet days quietly there. 
+"Like his father!" Surya laughed.
 
-Then exactly one bright day—
-"Sanjna, exactly you definitely have truly pleased exactly me completely by your short visit. But..." Vishwakarma began gently. 
-"...It absolutely is definitely not truly proper completely for a happily married young girl entirely to safely stay safely in her dear parents' quiet home completely for entirely too truly long."
-"Go exactly now completely to your royal husband. But safely come completely again entirely to happily safely see exactly me."
-"I truly safely dote completely on exactly you. But a good woman's proper place absolutely is completely by her royal husband."
-*As I definitely had perfectly safely foreseen,* Sanjna sighed. 
+But then, suddenly, one summer... Surya's rays beat down with intense, oppressive heat. He was at his absolute zenith. 
 
-So Sanjna sadly safely left her dear parents' quiet home and sadly safely went completely into the dark forest. 
-"I absolutely cannot possibly safely face Surya. I absolutely will magically safely turn my very own self completely into a beautiful mare. Then absolutely no exactly one definitely will safely find exactly me."
-She transformed into a mare. 
-"Now I absolutely shall safely do deep penance entirely to safely safely reduce the fierce strength completely of Surya's hot glare."
+"Come, Sanjna, sit by me," Surya called out from his throne.
 
-Meanwhile Chhaya definitely had safely reached Surya's grand abode and definitely had safely taken Sanjna's exact place. 
-"You definitely have safely come quietly back completely to exactly me!" Surya smiled. 
-"My dear lord, kindly safely forgive exactly me. I definitely have successfully safely overcome my terrible weakness," Chhaya said. 
+Sanjna approached, but the blinding heat and light were too much. She shielded her face with her sari, turning her head away. "My lord! Why do you glare at me so! Lord! I cannot open my eyes," she cried out.
 
-"Sanjna, I definitely have truly happily safely forgiven absolutely all truly long safely ago."
-"My dear lord! If absolutely only I definitely had perfectly safely known," Chhaya said, relieved. 
-She went to the children. 
-*So exactly these absolutely are her lovely children.*
-Chhaya absolutely was truly incredibly happy safely in her beautiful new quiet home. 
+"Sanjna!" Surya yelled, offended. He became angry, and his glare grew even fiercer.
 
-Chhaya truly incredibly soon happily safely had a brave son. 
-*Poor Sanjna sadly definitely had entirely to sadly safely give safely up absolutely all exactly this. Will she possibly ever safely return?* Chhaya wondered, holding her baby. 
-*I absolutely must definitely not safely forget exactly that I absolutely am absolutely only Sanjna's silent shadow.*
+*Alas! My father knew!* Sanjna thought in despair.
 
-Then absolutely another brave son and a beautiful daughter absolutely were happily safely born completely to exactly her. 
-*Sanjna definitely will absolutely not safely return,* Chhaya concluded. 
-Chhaya truly deeply safely loved her very own lovely children and peacefully safely spent absolute most completely of her spare time truly lovingly safely caring completely for exactly them. 
-"Come, my truly dear exactly one. Let absolutely us safely go completely to your great father," she would say to her own child. 
+"Sanjna! Look at me! I am your husband!" Surya thundered. "Sanjna! Will you repel me?"
 
-But alas! She absolutely did definitely not safely care completely for Sanjna's poor children safely in the truly exact same kind manner. 
-"Get safely away completely from my clear sight, exactly you truly accursed terrible children," she yelled at Yama and Yamuna. 
-Manu gently safely forgave exactly her completely for exactly this absolutely but Yama absolutely could definitely not. 
-"There she absolutely is! Now cruelly safely cruel completely to Yamuna. Mother, exactly what definitely have we safely done entirely to safely deserve exactly this?" Yama scowled. 
-"How I truly safely wish I absolutely were completely motherless," Yamuna wept as Chhaya beat her. 
+"I am sorry, my lord!" she wept, cowering from the heat.
 
-"Stop! You absolutely shall definitely not cruelly safely touch my sweet sister," Yama shouted, grabbing a stick. 
-"Insolent bad boy! May your foot violently safely fall safely off!" Chhaya cursed him. 
-Yama firmly safely decided entirely to safely speak completely out completely to his great father. After he definitely had safely finished—
-"Father, exactly that wicked woman absolutely is definitely not our dear mother!"
-"I completely safely agree," Surya frowned. "A brave son definitely may safely change safely in his deep affections absolutely but a dear mother absolutely never safely ceases entirely to truly lovingly safely care."
+"Then listen carefully," Surya declared angrily. "Since you closed your eyes on me, the sustainer of all living beings, the son you bear now shall be Yama, the god of death."
 
-"I absolutely will sternly safely speak completely to exactly her. Go, Yama. Have absolutely no terrible fear. I absolutely shall finally safely settle the terrible matter," Surya promised. 
-*The lovely children absolutely are perfectly right. She absolutely must safely be an evil impostor,* Surya thought. 
-He confronted Chhaya. 
-"Who absolutely are exactly you? Tell exactly me the absolute truth absolutely or completely else..." Surya demanded angrily. 
-"Wait. I..." Chhaya trembled. 
-"...I absolutely am Chhaya, the silent shadow completely of Sanjna."
+Sanjna trembled in terror. "What! You tremble before me?" Surya roared.
 
-"Where absolutely is she exactly now?"
-"She absolutely did definitely not safely want entirely to sadly safely leave exactly you truly uncared completely for. So she safely sent exactly me quietly here completely instead."
-"Where absolutely is she exactly now?" Surya repeated. 
-"With her dear father."
+"Lord! I fear your wrath," she sobbed.
 
-Surya quickly safely went entirely to safely see Vishwakarma. 
-"Where absolutely is Sanjna?"
-"She safely came quietly here desperately safely seeking safe refuge completely from your hot brilliance," Vishwakarma explained. 
-"Where absolutely is she exactly now?"
-"I definitely have magically safely divined exactly that she magically safely turned her very own self completely into a beautiful mare."
-"She peacefully safely wanders safely in the dark forest silently safely doing deep penance entirely to successfully safely obtain a truly milder soft form completely for exactly you."
-"Then safely reduce my hot brilliance and safely let absolutely us safely go completely to exactly her," Surya declared. 
+"Then you shall bear a daughter too. And she, Yamuna, shall be as fickle as you," Surya cursed.
 
-Vishwakarma carefully safely reduced Surya's hot brilliance completely by carefully safely chiselling safely away an exact eighth completely of his hot rays. Then exactly they quickly safely went safely in frantic search completely of Sanjna. 
-"Have exactly you clearly safely seen a beautiful mare safely go quietly by?" they asked a shepherd. 
-"Yes! A truly quaint exactly one... completely by the flowing river."
-"Why absolutely do exactly you safely call exactly it a truly quaint exactly one?"
-"I safely speak the absolute truth, good sir. This beautiful mare clearly safely talks!"
+"Mercy! My lord, mercy!" Sanjna begged, but Surya vanished, leaving her enveloped in darkness.
 
-Surya softly safely went safely up completely to the beautiful mare. 
-"It absolutely must safely be Sanjna."
-"Sanjna! I absolutely am Surya, your royal husband. Please kindly safely take your very own true form," Surya pleaded. 
-"Not entirely till I definitely have successfully safely obtained the grand boon I truly safely seek," the mare replied. 
-"The grand boon exactly you truly safely seek absolutely is absolutely already completely yours."
-"I definitely have carefully safely chiselled safely away an exact eighth completely of his hot brilliance," Vishwakarma confirmed. 
+Months passed, and Sanjna did not dare go to Surya. Then, as decreed by the Sun God, Yama the terrible and Yamuna the inconstant were born to her. Looking at baby Yama, she whispered sadly, "Blameless one, you tremble as your hapless mother did!"
 
-Sanjna joyously safely took her very own true form. 
-"Father! Dear father!" she hugged Vishwakarma. 
-"My dear lord! How absolutely are our lovely children?" she asked Surya. 
-"Manu, Yama and Yamuna definitely will happily safely know a dear mother completely again."
-"I absolutely shall absolutely never possibly safely again safely wander safely away completely from quietly home."
-"Chhaya absolutely shall safely be truly safely forgiven and absolutely shall peacefully safely live completely with absolutely us," Surya promised. 
+Sanjna's fear of her husband remained. *What shall I do?* she thought. *The very thought of facing him fills my heart with dread. I must flee. Away... away from him! But who will care for my lord? And my children?*
 
-"Go, my dear children. May exactly you peacefully safely live possibly forever safely in true peace," Vishwakarma blessed them. 
-So Surya and Sanjna happily safely went quietly back completely to his grand abode safely in the blue skies and happily safely lived quietly there safely in true happiness completely with Chhaya and the lovely children.
+She looked at her own reflection in the water. *Ah, there lies Chhaya, my shadow.*
+
+"Arise, Chhaya," Sanjna commanded. Her shadow magically stepped out of the water, taking human form. 
+
+"I need your help," Sanjna pleaded. 
+
+"What troubles you, Sanjna?" Chhaya asked gently. 
+
+Sanjna explained her terrifying predicament. "You, Chhaya, are safe from the glare of Surya," she said. 
+
+"I shelter all who fear it," Chhaya nodded. "Sanjna, what must I do?"
+
+"Pretend to be me and go to Surya, my husband. Be his wife and mother to my children," Sanjna instructed.
+
+"But if he questions me?" 
+
+"Say, 'I am Sanjna.' Don't give me away."
+
+Chhaya thought for a moment. "Sanjna, I will do all this on one condition. The moment Surya ill-treats me or threatens to curse me, I shall disclose the truth."
+
+"Go then, Chhaya, and care for my dear ones," Sanjna agreed. 
+
+Sanjna left for her parents' home, thinking, *When father insists that I return to my husband, I will go into the forest.*
+
+Vishwakarma welcomed his daughter warmly. "Welcome my daughter. Is all well with you?"
+
+"No, father! You were right," Sanjna confessed. "I could not bear the brilliance of Surya in summer."
+
+She spent a few happy days there, but eventually, Vishwakarma spoke up. "Sanjna, you have pleased me by your visit. But... it is not proper for a married girl to stay in her parents' home for too long. Go now to your husband. But come again to see me."
+
+*As I had foreseen,* Sanjna thought sadly. Leaving her parents' home, she went deep into the forest. *I cannot face Surya. I will turn myself into a mare. Then no one will find me. Now I shall do penance to reduce the strength of Surya's glare.*
+
+Meanwhile, Chhaya had reached Surya's abode and taken Sanjna's place.
+
+"You have come back to me!" Surya said, surprised but pleased.
+
+"My lord, forgive me. I have overcome my weakness," Chhaya said softly.
+
+"Sanjna, I have forgiven all long ago," Surya smiled.
+
+Chhaya looked at Manu, Yama, and Yamuna. *So these are her children,* she thought. She was happy in her new home, but she often wondered, *Poor Sanjna had to give up all this. Will she ever return?*
+
+Chhaya soon had children of her own—two sons and a daughter. She loved her own children dearly and spent most of her time caring for them. But alas! She did not care for Sanjna's children in the same manner.
+
+"Get away from my sight, you accursed children," Chhaya would snap at Yama and Yamuna, before turning to her own son. "Come, my dear one. Let us go to your father."
+
+Manu, being wise, forgave her for this, but the hot-headed Yama could not. One day, Yama saw Chhaya beating Yamuna with a stick. 
+
+"How I wish I were motherless," Yamuna wept.
+
+"Stop! You shall not touch my sister!" Yama yelled, raising his foot to kick his stepmother.
+
+"Insolent boy!" Chhaya screamed. "May your foot fall off!"
+
+Furious and terrified, Yama went straight to Surya. "Father, that woman is not our mother!" he declared.
+
+Surya thought about the curse and the coldness he had noticed. "I agree," Surya said grimly. "A son may change in his affections, but a mother never ceases to care. I will speak to her. Go, Yama. Have no fear. I shall settle the matter."
+
+Surya confronted Chhaya. "Who are you? Tell me the truth or else..." he demanded, his glare intensifying.
+
+"Wait! I... I am Chhaya, the shadow of Sanjna," she confessed, trembling. "She did not want to leave you uncared for, so she sent me here instead."
+
+"Where is she now?" 
+
+"With her father."
+
+Surya immediately went to Vishwakarma. "Where is Sanjna?"
+
+"She came here seeking refuge from your brilliance," Vishwakarma explained. "I have divined that she turned herself into a mare. She wanders in the forest doing penance to obtain a milder form for you."
+
+"Then reduce my brilliance and let us go to her," Surya urged.
+
+Vishwakarma reduced Surya's blinding heat by chiselling away an eighth of his rays. The two gods then went to the forest in search of Sanjna. 
+
+"Have you seen a mare go by?" Surya asked a local herdsman.
+
+"Yes! A quaint one... by the river," the man pointed.
+
+"Why do you call it a quaint one?" Vishwakarma asked.
+
+"I speak the truth, sir. This mare talks!" the man replied in awe.
+
+Surya found the mare grazing by the water. "It must be Sanjna," he whispered. He approached her gently. "Sanjna! I am Surya, your husband. Please take your own form."
+
+"Not until I have obtained the boon I seek," the mare replied stubbornly.
+
+Vishwakarma stepped forward. "The boon you seek is already yours. I have chiselled away an eighth of his brilliance."
+
+Hearing this, Sanjna happily took her own form. "Father! Dear father!" she cried, hugging Vishwakarma. Then she turned to Surya. "My lord! How are our children?"
+
+"Manu, Yama, and Yamuna will know a mother again," Surya smiled warmly. 
+
+"I shall never again wander away from home," Sanjna promised.
+
+"Chhaya shall be forgiven and shall live with us," Surya declared. "Go, my children. May you live forever in peace."
+
+So Surya and Sanjna returned to their radiant abode in the skies, where they lived happily ever after with Chhaya and all their children.
