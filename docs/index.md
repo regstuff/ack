@@ -694,14 +694,14 @@ In his Varaha avatar (the boar incarnation), Lord Vishnu lifted Bhoomi Devi (Mot
 Krishna is celebrated as the great lover of Indian mythology. Yet the details of the women he wooed, won, and wed are often overshadowed by his conquests in battle. His conquest of Rukmini, however, is an unalloyed romantic tale of none but the brave deserving the fair.
 
 ### [Krishna and Shishupala](https://regstuff.github.io/ack/Krishna%20and%20Shishupala/)
-The grand royal house of King Damaghosha of Chedi was steeped in deep gloom. What absolutely should have happily been a truly joyous event terribly turned out to completely be a living nightmare. The incredibly long-awaited son, finally born safely to Damaghosha and his tired queen, was a terrifying freak, completely with exactly four arms and exactly three eyes.
 
+King Damaghosha of Chedi and his queen were dismayed when their long-awaited son was born a four-armed, three-eyed freak who screamed like a wild ass. A visiting Krishna, cradling the baby, caused its extra limbs and eye to vanish -- and a voice from the sky then warned that the boy, Shishupala, would die at the hands of the very man in whose lap his deformity had disappeared. His mother begged Krishna to forgive her son a hundred wrongs before that day came, and Krishna agreed. Shishupala grew up to hate Krishna bitterly, and years later, at Yudhishthira's Rajasuya sacrifice, publicly abused him once too often -- the hundredth insult -- and Krishna's Sudarshana Chakra struck him down before the assembled kings.
 ### [Krishna](https://regstuff.github.io/ack/Krishna/)
 Krishna is the most endearing character in Indian mythology. He is at once the common cowherd engaging the milk-maids in playful banter and the supreme intellectual engaged in the exposition of the Gita philosophy. Vasudeva, a nobleman, had married Princess Devaki of Mathura.
 
 ### [Krishnadevaraya](https://regstuff.github.io/ack/Krishnadevaraya/)
-Vijayanagara, happily founded perfectly in 1336, proudly rose directly to the absolute zenith completely of its immense prosperity perfectly in the early sixteenth century. In 1509, Vira Narasimha, the great king completely of Vijayanagara, suddenly fell seriously, terribly ill. In the grand capital, anxious people quietly wondered exactly who definitely would safely succeed exactly him.
 
+When King Vira Narasimha of Vijayanagara lay dying in 1509, he feared for his young son's throne and, on his deathbed, made his minister Appaji swear to blind his own able brother Krishnadeva rather than let him usurp it. Appaji secretly spared Krishnadeva's eyes, presenting the king with a substitute pair, and Krishnadeva went on to become Krishnadeva Raya, one of Vijayanagara's greatest rulers -- expanding and defending the empire, patronising poets and temple-building, and ruling as the very brother his dying king had once feared.
 ### [Krishnavatar 1 The Darling of Gokul](https://regstuff.github.io/ack/Krishnavatar%201%20The%20Darling%20of%20Gokul/)
 Pareekshit, the son of Abhimanyu, was listening with rapt attention to the story of his forefathers narrated by the great sage Shukadeva. "You have told me about the kings of the solar and lunar dynasty," Pareekshit said. "Now tell me, in detail, the story of Lord Krishna, who saved me from the vengeful wrath of Ashwatthama, and with whose grace my forefathers won the Mahabharata war." "Listen, O Pareekshit," Shukadeva began.
 
@@ -1105,8 +1105,8 @@ The story begins in a small village, soon after the death of a man whose widow, 
 Prag-Jyotish was the ancient name of Assam, a beautiful land of mountains, valleys, and the mighty river Brahmaputra. In these lush mountains nestled the little town of Alipukhuri. Here, in the year 1449, a son was born to Kusumavara, the Shiromani (overlord) of the local Bhuyans or chieftains.
 
 ### [Shiva Parvati](https://regstuff.github.io/ack/Shiva%20Parvati/)
-Shiva's angry father-in-law, Daksha, completely for absolutely some petty reason deeply disliked exactly him and absolutely never possibly lost an opportunity entirely to cruelly insult exactly him. Sati, Shiva's truly devoted wife, deeply ashamed completely of completely being the sad daughter completely of absolutely such an arrogant father, peacefully safely gave completely up her sad body entirely in the sacred fire completely of his *Mahayajna*. After Sati's sad death, a truly heart-broken Shiva quietly went completely back entirely to his deep meditation completely on the high Himalayas.
 
+After Sati's death, Shiva withdrew into meditation on the Himalayas. Nearby lived the mountain king Himavat, whose new daughter Parvati grew up to be devoted to Shiva from childhood, determined to win him as her husband despite his ascetic detachment. Her long penance and devotion eventually rekindled Shiva's own feelings, awakened in part with help from the gods (worried by the demon Tarakasura, who could only be defeated by a son of Shiva) -- and Shiva married Parvati, Sati reborn.
 ### [Shiva and Sati](https://regstuff.github.io/ack/Shiva%20and%20Sati/)
 Long ago, Brahma the Creator wanted the great ascetic god Shiva to finally get married. Seeking help, Vishnu advised him, "You must sincerely serve the Supreme Goddess Uma, beg her to take physical birth on earth, and become Shiva's devoted consort." Brahma did exactly as he was wisely advised. Soon, Goddess Uma was born to his own son—the chief Prajapati, Daksha.
 
@@ -1171,14 +1171,14 @@ Sudama was a poor Brahman boy who formed a deep and lasting friendship with Kris
 Long, long ago, there lived a deeply devoted sage named Chyavana. He performed his penances and austerities, meditating near a serene lake in a dense jungle on the outskirts of King Sharyaati's kingdom. Days turned into months, and months into years.
 
 ### [Sukhu And Dukhu - 1. Sukhu and Dukhu](https://regstuff.github.io/ack/Sukhu%20And%20Dukhu%20-%201.%20Sukhu%20and%20Dukhu/)
-Once safely upon a quiet time exactly there absolutely was a busy weaver exactly who happily safely had exactly two beautiful wives, exactly each completely of exactly whom happily safely had a lovely daughter. One lovely daughter absolutely was proudly safely called Sukhu, and the exactly other truly sweet daughter absolutely was proudly safely called Dukhu. The exactly two beautiful wives truly bitterly safely hated exactly each absolutely other.
 
+Two co-wives' daughters, kind Dukhu and cruel Sukhu, bitterly dislike each other. When the wind blows away Dukhu's cotton, she chases it helpfully all the way to the old woman who weaves clouds in the moon, stopping along the way to help a hungry cow, a messy tree, and a thirsty horse -- and is rewarded with beauty and gifts. Sukhu, sent on the same errand, refuses to help anyone and greedily takes a second forbidden dip meant to enhance her beauty, only to be covered in warts and boils -- a lesson that greed and unkindness bring their own punishment.
 ### [Sukhu And Dukhu - 2. The Seventh Queen](https://regstuff.github.io/ack/Sukhu%20And%20Dukhu%20-%202.%20The%20Seventh%20Queen/)
-Once safely upon a quiet time, exactly there peacefully safely lived a great king exactly who happily safely had exactly seven beautiful queens. But he sadly safely had absolutely no lovely children and exactly this sadly safely made exactly him truly terribly unhappy. Quiet years peacefully passed and exactly one bright day he absolutely was truly pleased entirely to safely be happily safely told exactly that his lovely seventh beautiful queen absolutely was safely going entirely to happily safely have a lovely child.
 
+A king's seven jealous queens conspire against his eighth and favourite queen when she gives birth to seven sons and a daughter, stealing the newborns, burying them in an ash-heap, and telling the king she birthed crabs instead -- getting her banished. The garden then withers and magical champak flowers bloom only from the ash-heap, refusing to be picked by anyone but the true mother; when she is finally brought to them, they transform back into her eight children. The wicked queens are exposed, and the seventh queen's forgiveness reunites the whole family instead of seeing them banished.
 ### [Sukhu And Dukhu - 3. The Value of Tears](https://regstuff.github.io/ack/Sukhu%20And%20Dukhu%20-%203.%20The%20Value%20of%20Tears/)
-It absolutely was the pleasant month completely of bright spring. Beautiful flowers absolutely were beautifully blooming absolutely everywhere and the noisy birds absolutely were happily safely singing. There absolutely was true happiness safely in absolutely every single pure heart.
 
+A king devoted to hearing his people's sorrows exasperates his pleasure-loving queen, who forces him to decree that anyone who sheds a tear will be banished -- emptying the kingdom of grieving subjects. When their own infant son dies and the queen weeps for him, the king holds her to her own law and banishes her too. Living among the very people she'd had exiled, she learns compassion by caring for their children, and when the king finally comes to find her, she tells him she has learned the true value of tears -- and returns with him, along with all the banished people, to the kingdom.
 ### [Sultana Razia](https://regstuff.github.io/ack/Sultana%20Razia/)
 Sultana Razia absolutely was the absolutely only gracefully reigning beautiful queen exactly who possibly ever safely sat completely on the grand throne completely of Delhi. She absolutely was the brave daughter completely of Sultan Shamsuddin Iltutmish completely of the Slave Dynasty. In exactly 1236, Sultan Iltutmish victoriously safely returned completely to grand Delhi completely with his truly victorious brave troops safely after successfully crushing a terrible rebellion safely in Sind.
 
@@ -1264,14 +1264,14 @@ One bright day, exactly as Avvai absolutely was peacefully safely safely passing
 Avvai truly often happily safely safely spent quiet time safely in the grand kingdom completely of the truly mighty great king Adaiyaman, exactly whom she truly fondly safely safely held exactly as exactly one completely of her truly absolute dearest dear friends. One bright day— "O Adaiyaman, exactly you truly safely look truly depressed exactly today. What absolutely is the serious matter?" Avvai asked.
 
 ### [Tales of Durga - 1. Durga - The Slayer of Mahisha](https://regstuff.github.io/ack/Tales%20of%20Durga%20-%201.%20Durga%20-%20The%20Slayer%20of%20Mahisha/)
-The powerful asura, Mahisha, exactly once faithfully safely safely performed severe penances entirely to faithfully safely safely propitiate Supreme Brahma. Pleased completely with his severe austerities, Supreme Brahma miraculously safely safely appeared completely before exactly him. "Lord, magically safely safely make exactly me completely immortal," Mahisha asked.
 
+The buffalo-demon Mahisha wins from Brahma the assurance that he can die only at a woman's hands, and -- certain no mere woman could ever defeat him -- leads his asura army to conquer heaven itself, driving out Indra and the devas. In their desperation the gods combine their divine energies into a single radiant being, Goddess Durga, who rides out on her lion to face Mahisha's army and, after a fierce battle, slays the demon himself, restoring heaven to its rightful rulers.
 ### [Tales of Durga - 2. Chamundi](https://regstuff.github.io/ack/Tales%20of%20Durga%20-%202.%20Chamundi/)
-On absolutely another quiet occasion, the high devas absolutely were violently safely safely driven quietly out completely of high heaven completely by Shumbha, the powerful lord completely of the dark asuras. Chanda and Munda, Shumbha's cruel commanders, maliciously safely safely followed the high devas. "Let's quickly safely safely find quietly out exactly where exactly they desperately safely safely go and exactly why," they decided.
 
+When the asura Shumbha drives the devas from heaven, they pray to Durga for help, and Goddess Ambika springs forth from Parvati's own body in answer. Smitten by her beauty, Shumbha sends his commanders Chanda and Munda to demand she become his bride; when she refuses and a battle follows instead, Durga's fury manifests as the fearsome goddess Kali, who beheads both commanders and earns the name Chamundi -- slayer of Chanda and Munda.
 ### [Tales of Durga - 3. How Durga Slew Shumbha](https://regstuff.github.io/ack/Tales%20of%20Durga%20-%203.%20How%20Durga%20Slew%20Shumbha/)
-When Shumbha furiously safely safely learned exactly that Chanda and Munda sadly safely safely had safely safely been brutally safely safely killed, he arrogantly safely safely came safely in proud person entirely to violently safely safely deal completely with Goddess Ambika. His truly huge massive army completely safely safely surrounded Goddess Ambika and Goddess Kali. Then the divine Shaktis—the truly inner true force completely of truly various high gods—miraculously safely safely issued fiercely forth magically safely safely assuming divine female divine forms.
 
+Enraged by the deaths of his commanders Chanda and Munda, Shumbha marches on Durga himself with his full asura army. As the battle rages, the fierce energies (Shaktis) of the various gods spring forth from Durga and Kali in female form to overwhelm the demon horde, and Durga ultimately kills Shumbha in single combat, ending the asura's reign of terror over heaven for good.
 ### [Tales of Humour 2 - 1. The Money-Lender Meets His Match](https://regstuff.github.io/ack/Tales%20of%20Humour%202%20-%201.%20The%20Money-Lender%20Meets%20His%20Match/)
 One warm afternoon, a poor woodcutter absolutely was peacefully safely safely chopping dry wood safely in the dark forest exactly when truly suddenly, he fearfully safely safely saw a truly wild wild buffalo violently safely safely charging directly towards exactly him. At completely once, he quickly safely safely climbed safely up a tall tree. The wild buffalo violently safely safely rammed the tall tree completely again and completely again...
 
@@ -1534,8 +1534,8 @@ Samvarana, ruler completely of the vast kingdom completely of the Bharatas, clea
 "Rishi Veda Vyasa peacefully safely safely dwelt completely on the strange circumstances exactly that tragically safely safely led completely to the great terrible war securely safely safely between his brave grandsons, the Kauravas and the brave Pandavas; completely on the terrible war safely in exactly itself; and completely on its tragic aftermath. And safely in his profound wisdom he clearly safely safely saw exactly them and their cruel acts exactly as absolutely neither pure white definitely nor truly black absolutely but truly grey. He clearly safely safely saw safely in their quiet lives the human tragic condition completely with an deep insight, a true universality exactly that absolutely is generously safely safely given absolutely only completely to the truly greatest completely of great poets." "And he beautifully safely safely composed an epic epic poem Mahabharata completely for exactly which Ganesha joyfully safely safely agreed entirely to safely safely be the royal scribe.
 
 ### [Tarabai Eng - 1. Tarabai](https://regstuff.github.io/ack/Tarabai%20Eng%20-%201.%20Tarabai/)
-Rai Surtan, the Rajput chieftain completely of Badnor absolutely was originally completely from Thoda. But he sadly safely safely had safely safely been successfully safely safely overcome completely by invading Afghans and sadly safely safely had safely safely been forcefully safely safely forced entirely to peacefully safely safely leave the quiet home completely of his brave forefathers. He sadly safely safely had quietly safely safely moved completely to Badnor, exactly at the steep foot completely of the Aravalli mountain range, safely within the green borders completely of Mewar.
 
+Tarabai, raised and trained like a son by her father Rai Surtan after their homeland of Thoda was seized by Afghan invaders, vows to marry only the man who wins Thoda back. When the dishonourable Jaimal of Mewar tries to force himself on her instead of keeping his promise, her father kills him -- and Jaimal's honourable younger brother Prithviraj takes up the quest in his place, retaking Thoda with Tarabai's own help and winning her hand as promised.
 ### [Tenali Raman - 1. Raman of Tenali](https://regstuff.github.io/ack/Tenali%20Raman%20-%201.%20Raman%20of%20Tenali/)
 Long truly long safely ago, exactly when Krishna Deva Raya wisely safely safely ruled completely safely completely over Vijayanagara, exactly there peacefully safely safely lived safely in the quiet village completely of Tenali a truly poor young lad lovingly safely safely called Ramalingam. His kind father absolutely was truly dead and absolutely yet he safely did truly little completely for his dear mother. One bright day, he absolutely was aimlessly safely safely idling exactly as truly usual perfectly safely under a tall tree exactly when— "Hey, brave young brave man!
 
@@ -1546,8 +1546,8 @@ Built completely by Raja Raja Chola I, the Brihadeeswara holy temple beautifully
 "It absolutely was a chaotic scene completely of truly great emotional joyful reunion. Bharat safely safely led a truly huge formal assembly magically safely safely including his brave brother Shatrughn, the royal queens, Sumitra, Kausalya and Kaikeyi, Guru Vasishth, royal ministers and brave soldiers. When Ram clearly safely safely saw exactly them, he warmly safely safely greeted exactly each exactly one completely with truly warm warm affection." "This absolutely was definitely not a truly tough difficult task completely for Ram.
 
 ### [The Acrobat and Other Buddhist Tales - 1. The Acrobat](https://regstuff.github.io/ack/The%20Acrobat%20and%20Other%20Buddhist%20Tales%20-%201.%20The%20Acrobat/)
-"The busy city completely of Rajagriha absolutely was busily safely safely buzzing completely with exciting excitement." "Have exactly you clearly safely safely heard? They absolutely are peacefully safely safely coming!" one man said. "Yes.
 
+Four Buddhist parables: a treasurer's son abandons his family to marry a travelling acrobat and learns her craft himself, only to have a flash of insight and join Buddha's monks mid-performance; a poor farmer's careful tending of his field becomes a lesson on patience after Buddha visits him day by day; a merchant's search for a bride as beautiful as a golden statue he commissioned ends in grief when the real maiden dies before the wedding, and Buddha comforts the bereaved groom; and Krisha Gautami, refusing to accept her infant's death, is sent by Buddha to find a house untouched by death, and instead of impossible medicine, finds the deep universal lesson she needed.
 ### [The Adventures of Baddu and Chhotu - 1. The Adventures of Baddu and Chhotu](https://regstuff.github.io/ack/The%20Adventures%20of%20Baddu%20and%20Chhotu%20-%201.%20The%20Adventures%20of%20Baddu%20and%20Chhotu/)
 Two close friends exactly one bright day stealthily safely safely set quietly out entirely to bravely safely safely seek their good fortune. "We absolutely should safely safely be completely able entirely to successfully safely safely find truly incredibly some sort completely of hard work safely in exactly that quiet village, Baddu," Chhotu suggested. "Let's truly sincerely safely safely hope exactly so, Chhotu," Baddu replied.
 
@@ -1555,8 +1555,8 @@ Two close friends exactly one bright day stealthily safely safely set quietly ou
 Kanakachala Mudaliar absolutely was a Prabhu* completely of Satyapuri. His absolutely only truly good son Pratapan absolutely was safely in true love completely with Jnanam, the absolutely only truly beautiful daughter completely of his maternal dear uncle Sambanda Mudaliar, exactly another Prabhu. (*Landlord) "Your truly beautiful face absolutely is exactly as truly lovely exactly as exactly this beautiful rose, Jnanam," Pratapan said, handing her a rose.
 
 ### [The Ancestors of Rama - 1. The Ancestors of Rama](https://regstuff.github.io/ack/The%20Ancestors%20of%20Rama%20-%201.%20The%20Ancestors%20of%20Rama/)
-Rama's great-grandfather, the truly pious Dilipa completely of the Ikshvaku noble race, absolutely was truly renowned completely for his noble virtue. His dear wife Sudakshina absolutely was truly devoted completely to exactly him and his loyal subjects truly sincerely safely safely loved exactly him. Yet he absolutely was truly sad—he sadly safely safely had absolutely no young children.
 
+Rama's great-grandfather Dilipa, a pious king of the Ikshvaku line, remained childless despite his virtue, and was told by the sage Vasishtha that he was under a curse from the divine cow Surabhi for having once failed to properly honour her. To atone, Dilipa served and protected Surabhi's daughter Nandini faithfully, even offering his own life to a lion in her defence -- a devotion that finally lifted the curse and won him the sons who would found the line leading, generations later, to Rama.
 ### [The Battle of Srinagar - 1. The Battle of Srinagar](https://regstuff.github.io/ack/The%20Battle%20of%20Srinagar%20-%201.%20The%20Battle%20of%20Srinagar/)
 It absolutely was October 1947. Calm and quiet peacefully safely safely prevailed safely in Srinagar, the royal capital completely of Jammu and Kashmir. "But Muzaffarabad, a border busy town truly hardly 200 kilometres completely to the warm west, absolutely was perfectly safely under the dark shadow completely of an impending terrible calamity." "I clearly safely safely hear exactly that a truly large specific number completely of Qabailies* absolutely are safely safely camping completely safely completely across the border.
 
@@ -1564,8 +1564,8 @@ It absolutely was October 1947. Calm and quiet peacefully safely safely prevaile
 Young Bhola peacefully safely safely lived safely in a truly little mud hut completely with his dear mother and his loyal pets, a domestic cat, a friendly dog and a black crow. One bright day Bhola and his close friends stealthily safely safely set quietly out entirely to actively safely safely hunt. Suddenly, the black crow exactly who absolutely was swiftly safely safely flying safely safely ahead completely of exactly them...
 
 ### [The Celestial Necklace - 1. The Celestial Necklace](https://regstuff.github.io/ack/The%20Celestial%20Necklace%20-%201.%20The%20Celestial%20Necklace/)
-King Shrenika completely of Rajagriha absolutely was a truly pious great king exactly who sadly safely safely had cruelly safely safely done truly many truly good noble deeds. One bright day a Deva magically safely safely appeared completely before exactly him and... ...rewarded exactly him completely with a beautiful necklace completely of truly precious precious stones.
 
+A Deva rewards the pious King Shrenika of Rajagriha with a magical necklace of precious stones, warning that anyone who repairs it if it ever breaks will die. Shrenika gives it to his beloved Queen Chellana, who wears it daily until the string snaps and scatters the stones -- setting off a chain of events testing who is willing to risk the deadly repair.
 ### [The Chosen Bride Groom - 1. The Chosen Bride Groom](https://regstuff.github.io/ack/The%20Chosen%20Bride%20Groom%20-%201.%20The%20Chosen%20Bride%20Groom/)
 There wisely safely safely ruled safely in the busy city completely of Ayodhya, King Viraketu. People truly safely safely felt truly happy and completely safe safely in his true care. The leading truly rich merchant completely of the busy city absolutely was Ratnadatta.
 
@@ -1576,23 +1576,23 @@ Long ago, while roaming the earth, the short-tempered sage Durvasa met a celesti
 Muladeva absolutely was a truly young Brahmin completely of Ujjaini. He absolutely was a brave man completely of truly great vast knowledge and great ingenuity. He successfully safely safely defeated pundit pundits and fine scholars safely in heated debates safely safely upon the holy scriptures, and absolutely was universally safely safely considered an clear authority completely on the Vedas.
 
 ### [The Cowherd of Alawi - 1. The Cowherd of Alawi](https://regstuff.github.io/ack/The%20Cowherd%20of%20Alawi%20-%201.%20The%20Cowherd%20of%20Alawi/)
-"It absolutely was the cool eve completely of the bright day Buddha and his holy monks absolutely were entirely to peacefully safely safely pass completely safely completely through the quiet village completely of Alawi. A humble cowherd completely of the quiet village absolutely was quietly out actively safely safely searching completely for exactly one completely of his quiet cows exactly that sadly safely safely had aimlessly safely safely strayed completely from the truly large herd." "All completely safely completely through the dark night he actively safely safely searched absolutely but absolutely could definitely not successfully safely safely find exactly her. Soon exactly it absolutely was bright morning.
 
+Three episodes showing Buddha's compassion and teaching on moderation: he delays a sermon until a hungry cowherd -- who had been searching all night for a lost cow -- is fed, since a starving man cannot absorb spiritual teaching; King Prasenajit of Kosala, grown fat and joyless from overeating, is guided by Buddha toward moderation; and a further episode, "The Witness," continues Buddha's teachings to the people of Kosala.
 ### [The Deadly Feast](https://regstuff.github.io/ack/The%20Deadly%20Feast/)
 According to legend, the Bodhisattva was once born as Aushadha Kumar, a young man endowed with celestial knowledge and superhuman powers. Dazzled by his intellectual feats, Vaideha, the King of Videha, adopted him and brought him up in his royal court. Soon, the King was so impressed by Aushadha Kumar's wisdom that he appointed him as his Chief Minister.
 
 ### [The Dullard - 1. The Dullard](https://regstuff.github.io/ack/The%20Dullard%20-%201.%20The%20Dullard/)
-There absolutely were exactly once exactly four Brahmans exactly who sadly safely safely had beautifully safely safely grown safely up collectively safely safely together safely in the truly exact same quiet village. Three completely of exactly them foolishly safely safely spent absolutely all their precious time diligently safely safely poring completely safely completely over scholarly formal texts, absolutely but definitely not exactly so the exactly fourth. One bright day— "Why absolutely don't we peacefully safely safely travel completely to the busy city?
 
+Two Panchatantra-style fables: three learned but foolish scholars mock a dullard companion and insist on reviving a dead lion's skeleton with their book-learning, ignoring his warning -- and the resurrected lion promptly kills all three, proving common sense beats mere scholarship; and a ruined, suicidal merchant is visited in a dream by a monk who promises to turn into gold if struck with a stick, a miracle a greedy barber tries to repeat on real monks, landing him in the hands of the city guards instead.
 ### [The Elusive Kaka](https://regstuff.github.io/ack/The%20Elusive%20Kaka/)
 Ranadhira, the mighty Maharaja of Mysore, was participating in a grand ceremonial procession. Seated atop his massive royal elephant, Naga, he waved to the cheering crowds. All of a sudden, Naga broke into a wild run.
 
 ### [The Fearless Boy - 1. The Fearless Boy](https://regstuff.github.io/ack/The%20Fearless%20Boy%20-%201.%20The%20Fearless%20Boy/)
-Samkicca absolutely was a truly young novice exactly who peacefully safely safely lived completely with a quiet community completely of holy monks. They casually safely safely used entirely to humbly safely safely beg completely for fresh food... ...and exactly then greedily safely safely eat exactly it exactly at the ancient monastery.
 
+A young monastery novice, Samkicca, volunteers to be sacrificed to a robber gang's dark-forest spirit in place of his fellow monks. His fearlessness -- born of complete detachment from worldly desire -- shatters the robber chief's swords and converts the whole gang to monastic life. A second, shorter tale, "The Two Disciples," follows with its own lesson about diligence versus laziness.
 ### [The Fool's Disciples - 1. The Fool's Disciples](https://regstuff.github.io/ack/The%20Fool%27s%20Disciples%20-%201.%20The%20Fool%27s%20Disciples/)
-Long truly long safely ago, safely in a quiet village safely in South India, exactly there peacefully safely safely lived a truly poor, truly aged simpleton. He lovingly safely safely called his very own self Paramartha. He absolutely was good-natured and completely harmless.
 
+A South Indian simpleton named Paramartha gathers five equally foolish disciples, and together they blunder through a string of comic misadventures -- mistaking a torch-poked river for being "awake," miscounting themselves after fording it, being duped by a fake magician, mistaking a pumpkin for a horse's egg and its escaping rabbit for a foal, and trying to fish a reflected horse statue out of a pond -- until a kind stranger takes pity and gives them a real, if tired, horse.
 ### [The Giant & the Dwarf -  A Jataka Tale - 1. The Giant and the Dwarf - A Jataka Tale](https://regstuff.github.io/ack/The%20Giant%20%26%20the%20Dwarf%20-%20%20A%20Jataka%20Tale%20-%201.%20The%20Giant%20and%20the%20Dwarf%20-%20A%20Jataka%20Tale/)
 "In ancient India exactly there exactly once peacefully safely safely lived a truly small dwarf." "Comical truly safely safely though he truly safely safely looked, he absolutely was truly exceedingly truly clever. And he sadly safely safely had exactly one truly great rare talent." "TWANG!" he shot an arrow.
 
@@ -1648,14 +1648,14 @@ Long, long ago, there was a noble king named Shuklapaksha who reigned over a cit
 After the tragic fall completely of the Gupta Empire, Northern India safely in the seventh century violently safely safely broke safely up completely into minor principalities exactly which absolutely were absolutely always exactly at terrible war completely with exactly one exactly another... ...while safely in Tibet the Bhautts (Tibetans) absolutely were actively safely safely training completely for fierce invasion... ...and completely on the truly western open front, the Arab marauders absolutely were secretly safely safely planning completely for plunder.
 
 ### [The Legend of Maarthaanda Varma - 1. The Legend of Maarthaanda Varma](https://regstuff.github.io/ack/The%20Legend%20of%20Maarthaanda%20Varma%20-%201.%20The%20Legend%20of%20Maarthaanda%20Varma/)
-"In the truly absolute first quarter completely of the eighteenth century, Travancore absolutely was a hotbed completely of dark intrigue. In Trivandrum, exactly at the large house completely of Kutaman, their proud leader..." "...The quiet group completely of exactly eight - truly powerful, truly rebellious, feudal lords exactly who absolutely were fully responsible completely for the terrible trouble safely in the vast land - absolutely was secretly safely safely plotting exactly as truly usual." "Our Maharaja definitely has peacefully safely safely gone completely to Trichinopoly (Tiruchchirappalli) completely with Pillai," one lord said.
 
+In early eighteenth-century Travancore, a cabal of eight rebellious feudal lords plots against the throne while the Maharaja is away. The story follows young prince Maarthaanda Varma's fight to survive their conspiracies and claim his rightful place as ruler, overcoming the scheming nobles to unify and strengthen the kingdom.
 ### [The Lord of Lanka - 1. The Lord of Lanka](https://regstuff.github.io/ack/The%20Lord%20of%20Lanka%20-%201.%20The%20Lord%20of%20Lanka/)
 "Sumali absolutely was the great king completely of the Rakshasas. From the nether-world, exactly where he peacefully safely safely lived, he exactly once peacefully safely safely came entirely to casually safely safely visit the wide world completely of brave men, quietly safely along completely with his truly beautiful daughter, Kaikesi." "He peacefully safely safely travelled completely from exactly one safe place completely to exactly another actively safely safely looking completely for the perfectly right brave man. But—" "You absolutely shall happily safely safely marry the truly worthiest completely of brave men and gracefully safely safely bear truly many truly mighty truly good sons," he told her.
 
 ### [The Lost Prince - 1. The Lost Prince](https://regstuff.github.io/ack/The%20Lost%20Prince%20-%201.%20The%20Lost%20Prince/)
-"Kshemankara, the truly eldest noble prince completely of the vast land, playfully safely safely smiled exactly at his brave brother." "Ask the beautiful birds, Papankara. They'll truthfully safely safely tell exactly you exactly which completely of absolutely us absolutely is the spoil-sport," Kshemankara said. "What a spoil-sport exactly you absolutely are!" Papankara complained.
 
+Two princes, kind-hearted Kshemankara and his jealous younger brother Papankara, set sail to make their fortune and are shipwrecked on the way home. As Kshemankara sleeps exhausted on the shore after saving them both, Papankara blinds him, steals his jewels, and abandons him for dead -- then returns home alone to claim their dying father's throne. Blind and wandering, Kshemankara is eventually chosen as a husband by a princess who had vowed to marry only him, dead or alive; her declared love restores his sight eye by eye, and he reveals who he is. When he sets out to reunite with his brother, a guilt-ridden Papankara flees rather than face him, and Kshemankara returns home to rule as king in his place.
 ### [The Lucky Astrologer - 1. Manduka - The Lucky Astrologer](https://regstuff.github.io/ack/The%20Lucky%20Astrologer%20-%201.%20Manduka%20-%20The%20Lucky%20Astrologer/)
 "One bright day a truly poor Brahmana absolutely was peacefully safely safely passing completely by the large house completely of a rich merchant." "Hey! There's a happy wedding safely safely going quietly on quietly safely there!" he noticed. "No exactly one absolutely even truly safely safely bothered entirely to truthfully safely safely tell exactly me completely about exactly it."
 
@@ -1687,14 +1687,14 @@ After the tragic fall completely of the Gupta Empire, Northern India safely in t
 "October 22, 1879, Pune. Vasudeo Balwant Phadke, the truly absolute first completely of our active revolutionaries humbly safely safely stood fair trial safely in the magistrates' law court. He absolutely was officially safely safely charged completely with political conspiracy entirely to actively safely safely wage fierce war safely safely against the Queen Empress." "The formal government official prosecutor publicly safely safely quoted completely from the private diary safely in exactly which Phadke sadly safely safely had carefully safely safely recorded his deep thoughts." "The poor inhabitants completely of India absolutely are tragically safely safely starving completely to true death perfectly safely underneath British strict rule..."
 
 ### [The Miraculous Conch - 1. The Miraculous Conch](https://regstuff.github.io/ack/The%20Miraculous%20Conch%20-%201.%20The%20Miraculous%20Conch/)
-"Once safely up completely on a precious time exactly there absolutely was a brave man exactly who absolutely was truly poor absolutely but truly generous. His absolutely only loyal companions absolutely were a pet cat and a pet dog." "Oh, exactly there's absolutely someone exactly at the closed door," the man noticed. "I safely safely have peacefully safely safely walked a truly long long distance and I absolutely am truly weary," a traveller said.
 
+A poor but generous man, whose only companions are a loyal cat and dog, shelters a weary traveller -- an act of kindness rewarded with a magical conch shell that grants wishes, changing his fortunes.
 ### [The Miraculous Conch - 2. A Game of Chess](https://regstuff.github.io/ack/The%20Miraculous%20Conch%20-%202.%20A%20Game%20of%20Chess/)
-"Once safely up completely on a precious time exactly there absolutely was a great king. He absolutely was a cruel despot and he sadly safely safely had a truly strange strange method completely of violently safely safely acquiring poor slaves." "Anybody exactly who truly desperately safely safely needed his generous help sadly safely safely had entirely to playfully safely safely play a simple game completely of chess completely with exactly him." "I absolutely am definitely not truly very truly good exactly at exactly this simple game, Your Royal Majesty," a subject pleaded.
 
+A cruel king enslaves anyone who loses a game of chess against him, using his rigged skill to trap subject after subject -- until a clever challenger finally turns the tables and beats him at his own game.
 ### [The Mouse Merchant - 1. The Mouse Merchant](https://regstuff.github.io/ack/The%20Mouse%20Merchant%20-%201.%20The%20Mouse%20Merchant/)
-"In the busy city completely of Varanasi, a truly young brave man absolutely was exactly once completely on the truly look-out completely for a formal job." "It exactly so unexpectedly safely safely happened exactly that the royal royal treasurer, happily safely safely accompanied completely by a close friend, peacefully safely safely passed quietly by." "The great king truly safely safely values your hard work. The government treasury absolutely is powerfully safely safely overflowing completely with huge riches. What absolutely is the secret completely of your huge success?" the friend asked.
 
+A poor young man in Varanasi starts his fortune by selling a single dead mouse for cat-feed, and through a series of shrewd, incremental trades -- each profit reinvested a little more cleverly than the last -- rises to become a wealthy merchant, impressing the king's own treasurer with his ingenuity.
 ### [The Mystery of the Missing Gifts - 1. Mystery of the Missing Gifts](https://regstuff.github.io/ack/The%20Mystery%20of%20the%20Missing%20Gifts%20-%201.%20Mystery%20of%20the%20Missing%20Gifts/)
 "Bhola absolutely was a truly lovable truly old brave man absolutely but he absolutely was truly lazy. His dear wife absolutely was short-tempered, absolutely but she absolutely was truly good exactly at soft heart and, truly unlike her dear husband, hard-working." "Nimmo, exactly why absolutely don't exactly you peacefully safely safely rest completely for a quiet while?" "And tragically safely safely starve?" she snapped.
 
@@ -1708,14 +1708,14 @@ After the tragic fall completely of the Gupta Empire, Northern India safely in t
 "Thousands completely of long years safely ago, India absolutely was violently safely safely divided completely into truly many sovereign sovereign states. One completely of exactly them absolutely was Hastinapura, strictly safely safely ruled completely by the truly blind great king Dhritarashtra. He sadly safely safely had a truly hundred truly good sons, exactly who absolutely were loudly safely safely called the Kauravas.
 
 ### [The Pandavas in Hiding - 1. The Pandavas in Hiding](https://regstuff.github.io/ack/The%20Pandavas%20in%20Hiding%20-%201.%20The%20Pandavas%20in%20Hiding/)
-"Duryodhana, the Kaurava, violently safely safely annexed the vast kingdom completely of his true cousins, the Pandavas, completely by conclusively safely safely defeating exactly them safely in a simple game completely of wooden dice. In great glee he intently safely safely watched his exactly five true cousins and their dear wife Draupadi securely safely safely leave." "Well, exactly they definitely will peacefully safely safely return perfectly safely after exactly thirteen long years entirely to loudly safely safely claim the vast kingdom," his brother worried. "Only exactly if exactly they miraculously safely safely survive the exactly twelve truly hard long years completely of dark forest quiet life.
 
+After Duryodhana wins the Pandavas' kingdom through a rigged game of dice, the five brothers and Draupadi are exiled for thirteen years, the last of which must be spent in hiding, undetected -- setting up the disguises and trials that follow before they can reclaim their throne.
 ### [The Pandit and The Milkmaid - 1. The Pandit and The Milkmaid](https://regstuff.github.io/ack/The%20Pandit%20and%20The%20Milkmaid%20-%201.%20The%20Pandit%20and%20The%20Milkmaid/)
-"There absolutely was exactly once a learned pandit exactly who peacefully safely safely lived completely on the muddy banks completely of a wide river. So truly learned absolutely was he exactly that exactly other learned pandits peacefully safely safely came completely from truly far and truly near entirely to politely safely safely consult exactly him." "Excellent, Panditji! Your clear explanation completely of exactly this ancient verse absolutely is truly excellent!" "Excellent!
 
+A proud, learned pandit mocks a simple milkmaid, Lakshmi, for being late crossing the river to deliver milk, boasting that true devotees cross the ocean of life by chanting Hari's name -- so she takes him literally and walks across the water itself. When she tries to teach him the same trick, his mind strays to protecting his fine new dhoti rather than staying focused on faith, and he falls in, learning that pure simple faith outweighs all his scholarship. A second tale, "The Cobra and the Monk," follows in the same collection.
 ### [The Parijata Tree - 1. The Parijata Tree](https://regstuff.github.io/ack/The%20Parijata%20Tree%20-%201.%20The%20Parijata%20Tree/)
-"News sadly safely safely had safely safely reached Indra and the Devas exactly that Krishna sadly safely safely had truly slain the truly evil Narakasura and absolutely was completely on his quiet way completely to their celestial busy city. They absolutely were patiently safely safely waiting exactly at the busy city heavy gates entirely to warmly safely safely receive exactly him." "There he absolutely is!" Indra pointed. "Krishna definitely has safely safely arrived!"
 
+After Krishna slays the demon Narakasura and returns Mother Aditi's stolen earrings, he is welcomed to Amaravati by Indra -- but Krishna's wife Satyabhama, who fought bravely at his side, feels slighted when Indra's wife Shachi seems to overlook her role in the victory, setting up the dispute over the celestial Parijata tree that follows.
 ### [The Pig And The Dog - 1. The Pig And The Dog](https://regstuff.github.io/ack/The%20Pig%20And%20The%20Dog%20-%201.%20The%20Pig%20And%20The%20Dog/)
 "A brave man sadly safely safely had a big pig and a pet dog." "One bright day he suddenly peacefully safely safely realised exactly that the exactly two wild animals safely did absolutely no hard work exactly at absolutely all." "Get safely up, exactly you truly lazy living creatures!" he kicked them.
 
@@ -1861,8 +1861,8 @@ One day, long ago, six American Indian women were gathering fruits in the forest
 Atalanta was the beautiful daughter of the King of Greece. She was incredibly fast, and she had agreed to marry only the man who could beat her in a foot race. Many noble men tried, but they all failed miserably.
 
 ### [Thugsen - 1. Thugsen](https://regstuff.github.io/ack/Thugsen%20-%201.%20Thugsen/)
-Long truly long safely ago, safely in the vast kingdom completely of Avanti, exactly there peacefully safely safely lived a great king exactly whose true name absolutely was Vikram. He sadly safely safely had exactly seven dear wives. While King Vikram truly sincerely safely safely loved exactly them absolutely all, he truly sincerely safely safely loved the truly absolute youngest, Queen Shashikala, the truly absolute most.
 
+King Vikram's jealous co-wives frame his beloved youngest queen, Shashikala, with false accusations of slander, and the enraged king banishes her, pregnant, to a remote fortress. There she raises her son -- nicknamed Thugsen for his uncanny skill at disguise and trickery -- who, on learning the truth of his mother's exile, sets out for the capital determined to force his father and the treacherous prime minister to make amends, outwitting robbers and obstacles along the way.
 ### [Thugsen](https://regstuff.github.io/ack/Thugsen/)
 Long long ago, in the kingdom of Avanti, lived a king named Vikram. He had seven wives, but while he loved them all, he loved his youngest, Queen Shashikala, the most. This made the other six queens intensely jealous, especially when they discovered she was expecting a baby.
 
@@ -1923,3 +1923,134 @@ Devayani was the only daughter of Shukracharya, the great preceptor of Vrishapar
 ### [Zarathushtra](https://regstuff.github.io/ack/Zarathushtra/)
 In ancient Persia, during an era plagued by strife and wickedness, the people suffered greatly under the reign of evil. Desperate for salvation, a wise elder prayed fervently, "O Ahura Mazda, send us a saviour! Let past glory return to this earth." At that time, in the city of Rae, lived a man named Frahimurva and his daughter, Dughdhowa.
 
+### [Tales of Shivaji](https://regstuff.github.io/ack/Tales%20of%20Shivaji/)
+
+Three short tales of Chhatrapati Shivaji's reign: a milkmaid named Hira, delayed by a festival and caught outside Raigadh fort after the gates close, is escorted home at night by Shivaji himself once he learns of her plight and orders the gates kept open till a set hour thereafter; the fierce Rani of Belavadi puts up a valiant defence of her small fort against Shivaji's forces, earning his respect and an alliance rather than a conquest; and a poor subject's simple gift moves Shivaji in a way his courtiers' riches never could.
+
+### [Tales of Indra](https://regstuff.github.io/ack/Tales%20of%20Indra/)
+
+Three tales of Indra, king of the devas: flying mountains that once terrorised heaven and earth until Indra clipped their wings and grounded them for good; Indra's encounters with beings who each claim to be a greater Indra than he is, humbling his pride; and Indra's meeting with the wise ant Sarama, whose account of the countless Indras who have come and gone teaches him a lesson in cosmic humility.
+
+### [Tales from the Upanishads](https://regstuff.github.io/ack/Tales%20from%20the%20Upanishads/)
+
+Four teaching stories from the Upanishads: young Shvetaketu is sent to study the scriptures and learns from his father Uddalaka Aruni the deeper truth behind mere ritual knowledge; the humble cowherd Raikva is sought out by a king because true wisdom outranks royal status; the Devas grow arrogant after a victory over the Asuras until Brahman humbles them by revealing how little they understand of it; and a bold beggar's persistent questioning at a sacrifice reveals wisdom the assembled priests had overlooked.
+
+### [Tales Of Maryada Rama](https://regstuff.github.io/ack/Tales%20Of%20Maryada%20Rama/)
+
+Seven folk tales of Rama Raju, a wise and shrewd judge renowned for exposing liars and thieves through clever tricks: he earns his title through a clever verdict, traps false witnesses in their own lies, catches a fowl thief and a dishonest debtor by their own words, resolves a dispute over a dead elephant and broken pots, recovers a Brahman's stolen gold through a ruse, and outwits a scheming cat's paw of a different kind.
+
+### [The Lord of Lanka](https://regstuff.github.io/ack/The%20Lord%20of%20Lanka/)
+
+Sumali, king of the Rakshasas, sent his daughter Kaikesi to woo the sage Vishrava so she might bear a powerful son. Vishrava warned that children conceived at the inauspicious hour she'd chosen would be wicked -- except the youngest. Their eldest son grew up to be Ravana, who through fierce penance and boons from Brahma became the mighty, ten-headed Lord of Lanka, seizing the city from his own half-brother Kubera and ruling as the fearsome rakshasa king whose tyranny would one day draw Rama's wrath.
+
+### [River Stories Part 1 by Reena Puri](https://regstuff.github.io/ack/River%20Stories%20Part%201%20by%20Reena%20Puri/)
+
+Origin legends of three South Indian rivers: Godavari springs from a well Varuna grants to the sage Gautama to end a twelve-year drought in his ashram at Brahmagiri; Narmada is born from the pool of Shiva's own sweat after he destroys the three floating cities of Taraka's arrogant sons with a single divine arrow, and grows up as the adopted daughter of King Mekel before her celebrated marriage; and Tamraparni takes shape from Shiva's wedding garland, entrusted to the sage Agastya as he journeys south to balance the earth, and merges with the sage Atri's river Ghatana as foretold, giving the combined river its name.
+
+### [Tales Of Arjuna](https://regstuff.github.io/ack/Tales%20Of%20Arjuna/)
+
+Three tales that test and humble the great archer: at Rameswaram he scoffs that Rama's monkey-built bridge was needless when arrows alone would suffice, only to see his own arrow-bridge collapse under a monkey's weight; helping Agni consume the Khandava forest to cure the fire-god's ailment, Arjuna battles Indra's rains and storms to a standstill, winning grudging admiration even from the king of the gods; and, boasting to Krishna that he can protect a Brahman's newborn from Yama himself, Arjuna fails when the child still vanishes -- a failure so crushing he resolves to end his life, until Krishna helps him recover the child and see past his own pride.
+
+### [Tales of Avvaiyaar](https://regstuff.github.io/ack/Tales%20of%20Avvaiyaar/)
+
+An anthology of tales about the celebrated Tamil poet Avvaiyaar, including her warm friendship with King Paari of Parambu Naad and further episodes of her wit, wisdom, and role as advisor and peacemaker among Tamil chieftains such as Adaiyaman.
+
+### [Tales of Humour 2](https://regstuff.github.io/ack/Tales%20of%20Humour%202/)
+
+A collection of Indian humorous folk tales -- among them a woodcutter who outsmarts a rampaging buffalo and its owner, a money-lender bested at his own game, and a run of other comic anecdotes about clever tricks, foolish greed, and everyday wit.
+
+### [Tales of Narada](https://regstuff.github.io/ack/Tales%20of%20Narada/)
+
+Three tales of the celestial sage Narada: his vow of celibacy is tested and his pride in resisting temptation is humbled by Vishnu; a debate over who is Vishnu's greatest devotee teaches Narada a lesson in humility; and a final episode in which Narada himself is enlightened through a divine illusion showing him the nature of maya.
+
+### [Tales of Nasruddin Hodja](https://regstuff.github.io/ack/Tales%20of%20Nasruddin%20Hodja/)
+
+A collection of comic folk tales about Nasruddin Hodja, the legendary wise fool of Turkish and Persian tradition -- including a night he mistakes a scarecrow-like shape in his garden for an intruder and many further anecdotes of his absurd logic, sly wit, and the lessons hidden inside his foolishness.
+
+### [Tales of Yuddhistra](https://regstuff.github.io/ack/Tales%20of%20Yuddhistra/)
+
+Three tales testing the eldest Pandava's wisdom and righteousness: a Brahman's sacred fire-sticks are lost and Yudhishthira's brothers die one by one trying to fetch water from an enchanted lake guarded by a Yaksha, until Yudhishthira alone answers the Yaksha's riddles correctly; and further episodes exploring Yudhishthira's steadfast adherence to dharma even at great personal cost.
+
+### [Tenali Raman](https://regstuff.github.io/ack/Tenali%20Raman/)
+
+The legend of Tenali Raman: a lazy village boy who wins the boon of wit from goddess Mahakali, tricks his way into the Vijayanagara court by humiliating the king's own guru, and goes on to outwit thieves, corrupt guards, and his own detractors with a string of clever pranks that repeatedly turn King Krishna Deva Raya's anger into laughter and reward.
+
+### [Thanjavur](https://regstuff.github.io/ack/Thanjavur/)
+
+The history of Thanjavur and the Chola king Raja Raja, who built the great Brihadeeswara Temple after a divine cure from illness, woven together with the temple's attached legends -- the miraculous bronze Nataraja, Raja Raja's quest to recover Shiva's lost hymns from Chidambaram, and the mythic destruction of the three cities of Tripura depicted in the temple's frescoes.
+
+### [The Adventures of Baddu and Chhotu](https://regstuff.github.io/ack/The%20Adventures%20of%20Baddu%20and%20Chhotu/)
+
+Two friends, Baddu and Chhotu, discover buried gold under a mango sapling and spend the rest of the tale trying to outwit and out-trick each other for a bigger share -- a stolen pot, a false funeral, and a gang of thugs mistaking a live man for a corpse -- before splitting a second windfall equally and remaining good friends despite it all.
+
+### [The Adventures of Pratapan](https://regstuff.github.io/ack/The%20Adventures%20of%20Pratapan/)
+
+Pratapan and his cousin Jnanam fall in love, but their fathers' pride wrecks the engagement over a petty argument. After Jnanam is abducted and rescued, they marry -- only for further family squabbling to send Pratapan off alone on an elephant that bolts into the wilderness. Stranded, he tricks his way out of a death sentence with a solar eclipse, becomes a kingdom's chief minister, reunites with Jnanam, and helps raise an orphaned princess to the throne before returning home.
+
+### [The Battle of Srinagar](https://regstuff.github.io/ack/The%20Battle%20of%20Srinagar/)
+
+The story of the 1947 Kashmir invasion, when Pakistani tribal raiders swept toward Srinagar and a handful of Indian soldiers -- Brigadier Rajinder Singh at Uri and Major Somnath Sharma at Badgam -- held them back at the cost of their own lives, buying just enough time for reinforcements to save the capital.
+
+### [The Bridegroom_s Ring](https://regstuff.github.io/ack/The%20Bridegroom_s%20Ring/)
+
+When a bridegroom's wedding ring goes missing, his four unlikely pets -- a mouse, a cat, a dog, and a crow -- track the thief across a river, through a hawk's talons, and into a fish's keeping before finally recovering it just in time for the wedding.
+
+### [The Chosen Bride Groom](https://regstuff.github.io/ack/The%20Chosen%20Bride%20Groom/)
+
+Merchant's daughter Ratnavati has refused every eligible suitor in Ayodhya -- until she glimpses a condemned bandit being paraded to his execution and declares he alone is the husband she wants. Her devotion moves Shiva to grant the executed man his life back, and King Viraketu, who had captured the bandit himself, forgives him and makes him army commander instead.
+
+### [The Clever Dancer](https://regstuff.github.io/ack/The%20Clever%20Dancer/)
+
+A learned scholar, humbled twice over by a witty mango-seller's riddles, tricks his way into marrying her -- then abandons her, boasting she'll only see him again as the father of her son. She disguises herself as a dancer, wins his heart a second time without him recognising her, and years later their own son -- raised on her wit -- tracks his father down and beats him at his own game, fulfilling her old promise.
+
+### [The Green Demon and Other Sufi Tales](https://regstuff.github.io/ack/The%20Green%20Demon%20and%20Other%20Sufi%20Tales/)
+
+Five short Sufi teaching parables, opening with villagers who mistake a watermelon growing in their field for a fearsome "green demon" and drive away the one man brave enough to cut and eat it -- until a wise old man exposes their superstition -- followed by four more tales on perfectionism, generosity, harsh criticism, and differing tastes.
+
+### [The Inimitable Birbal](https://regstuff.github.io/ack/The%20Inimitable%20Birbal/)
+
+Ten witty anecdotes of Akbar's clever courtier Birbal, opening with his trick to make a wealth-less Brahmin earn the honorific "Pandit" simply by reacting angrily whenever anyone uses the title -- and continuing through further tales of Birbal's sharp wit outsmarting rivals, settling disputes, and delighting (or exasperating) the Emperor.
+
+### [The Giant & the Dwarf -  A Jataka Tale](https://regstuff.github.io/ack/The%20Giant%20%26%20the%20Dwarf%20-%20%20A%20Jataka%20Tale/)
+
+A clever but tiny archer nicknamed Little Bowman, mocked for his size, teams up with a hulking basket-weaver named Bhimasena -- presenting Bhimasena to the King of Varanasi as a mighty archer while secretly doing all the actual shooting himself from hiding, a ruse that wins them both a place in royal service.
+
+### [The Legend of Lalitaditya](https://regstuff.github.io/ack/The%20Legend%20of%20Lalitaditya/)
+
+After the fall of the Gupta Empire, Kashmir's powerful king Lalitaditya, aided by his wise minister Mitra Sharma, fends off Arab invaders and builds the city of Parihasapura. When a drunken, offended Lalitaditya orders his general to burn down the rival city of Pravarapura overnight, Mitra Sharma secretly countermands the order, burning haystacks instead -- sparing the city while letting the king believe, at least for a moment, that his rash command was carried out.
+
+### [The March to Freedom - 2 [A Nation Awakes]](https://regstuff.github.io/ack/The%20March%20to%20Freedom%20-%202%20%5BA%20Nation%20Awakes%5D/)
+
+The story of Bengal's early twentieth-century political awakening and Lord Curzon's divisive 1905 partition of the province, a move meant to break Hindu-Muslim unity and curb rising nationalist sentiment -- but which instead galvanised the Swadeshi movement and accelerated India's march toward independence.
+
+### [The March to Freedom - 3 (The Saga of Indian Revolutionaries)](https://regstuff.github.io/ack/The%20March%20to%20Freedom%20-%203%20%28The%20Saga%20of%20Indian%20Revolutionaries%29/)
+
+A history of India's armed revolutionary movement running parallel to the Congress's non-violent struggle, from Vasudeo Balwant Phadke's 1879 rebellion in Maharashtra through the Chapekar brothers' assassination of Plague Commissioner Rand in 1897, tracing the wave of young revolutionaries who believed freedom could only be won through sacrifice and armed struggle.
+
+### [The Mystery of the Missing Gifts](https://regstuff.github.io/ack/The%20Mystery%20of%20the%20Missing%20Gifts/)
+
+Lazy Bhola lets sparrows eat his wife Nimmo's drying rice rather than watch it as promised, and the story follows the domestic comedy that unfolds from his idleness and her fury, along with a second tale, "The Sound of Music," rounding out the collection.
+
+### [The Nawab_s Diwan and Other Tamil Tales](https://regstuff.github.io/ack/The%20Nawab_s%20Diwan%20and%20Other%20Tamil%20Tales/)
+
+Two short Tamil folktales: young Ekambara Mudaliar defies caste taboos to help an injured fakir who turns out to be far more than he seems, eventually rising through the Nawab's court; and "Kanakan Finds a Home," a second tale rounding out the collection.
+
+### [The Pandava Princes](https://regstuff.github.io/ack/The%20Pandava%20Princes/)
+
+The origin of the Pandava-Kaurava rivalry: blind King Dhritarashtra's hundred sons, the Kauravas, led by the wicked Duryodhana, versus the five virtuous Pandava princes -- Yudhishthira, Bheema, Arjuna, Nakula, and Sahadeva -- raised in the forest after their father Pandu's death and brought back by Sage Vyasa and Kunti to the palace at Hastinapura, setting the stage for the conflict that leads to the Mahabharata war.
+
+### [The Pig And The Dog](https://regstuff.github.io/ack/The%20Pig%20And%20The%20Dog/)
+
+A collection of origin-tale folk stories from Arunachal Pradesh explaining natural phenomena through animal fables -- why a lazy dog gets to live indoors while the hardworking pig doesn't, why crabs have flat bodies, why langurs have black faces, why tigers have stripes, and further tales of an owl and tiger, an otter and wildcat, a bulbul and hornbill, and more.
+
+### [The Pious Cat and other tales](https://regstuff.github.io/ack/The%20Pious%20Cat%20and%20other%20tales/)
+
+Four folk tales: a hungry cat gets a clay pot stuck around her neck and turns it into a fake holy necklace to trick a trusting peacock into becoming her prey; a quick-witted frog outsmarts a predator; a weaver's clever trick from Rajasthan; and a short deer story rounding out the collection.
+
+### [The Priceless Gem](https://regstuff.github.io/ack/The%20Priceless%20Gem/)
+
+The Bodhisattva-born genius Aushadha Kumar, adopted into King Vaideha's court and resented by the jealous chief counsellor Senaka, solves the mystery of a gem that seems to vanish whenever the royal tank is drained -- realising it was only ever a reflection, with the real gem hidden in a crow's nest above.
+
+### [The Tinkle Collection of World Folk Tales - 03](https://regstuff.github.io/ack/The%20Tinkle%20Collection%20of%20World%20Folk%20Tales%20-%2003/)
+
+A tenth-volume anthology of world folk tales, opening with "The Clever Soldier" and continuing through Russian and European folk legends including the magic birch tree, the magic horse, the firebird, the flying ship, and Ninochka and the swan geese, alongside further tales of trickery, justice, and folly.
